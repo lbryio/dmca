@@ -19,6 +19,8 @@ Guns N Roses - My Michelle - https://spee.ch/3/MyMichelleRitz1991
 Guns N' Roses - I Don't Care About You - https://spee.ch/5/GnFnRIDontCareAboutYou
 
 LBRY Details:   
-GnFnRIDontCareAboutYou - Outpoint: 0818ce8621cec24ef867d48fcd75de998fe2454305a30d685418c2b4b21f6ed9:0 / SDHash: 81e88fce67e84fbd6b00ab0038c74bc2dac9fa09617d94bab0a2e41b279804683d452aa97f49de642d61f78111e2d21c   
+GnFnRIDontCareAboutYou - Outpoint: 0818ce8621cec24ef867d48fcd75de998fe2454305a30d685418c2b4b21f6ed9:0   
+SDHash: 81e88fce67e84fbd6b00ab0038c74bc2dac9fa09617d94bab0a2e41b279804683d452aa97f49de642d61f78111e2d21c   
 
-MyMichelleRitz1991 - Outpoint: 80cb73390ca586d159ea8ad26ea9ba97402caa9b4e7ee49d354fc76a109bc6da:0 / SDHash: 9b804c3d29ce24aec49f23b8a79705489a65725038b3610ded37da017dcaa30fbfa94f190d40cdb6cd08316e6d5967f6
+MyMichelleRitz1991 - Outpoint: 80cb73390ca586d159ea8ad26ea9ba97402caa9b4e7ee49d354fc76a109bc6da:0   
+SDHash: 9b804c3d29ce24aec49f23b8a79705489a65725038b3610ded37da017dcaa30fbfa94f190d40cdb6cd08316e6d5967f6
