@@ -12,7 +12,7 @@ https://lbry.tv/@samvega:8/The-Epitome-of-Malnourishment-6-Sv3rige-Masterpiece-o
 
 Since Sverige, the original uploader of the video on YouTube (link to original infringing video which was claimed by me https://www.youtube.com/watch?v=vPUTH0ZOBJ4) has requested his audience re-upload the video to multiple websites including your own, and having found 16 mirrors on YouTube, 4 mirrors on your website and 1 mirror on Mediafire for which I have submitted a copyright complaint for all of them, I suggest and request if possible that you implement an automated system to prevent re-upload of this content in the future unless explicitly authorized by me via one of my contact options provided below.
 
-You can contact me at ruthless.peleg@gmail.com, misxxxxxess@gmail.com or via phone at xxxxxxx.
+You can contact me at ruxxxxxleg@gmail.com, misxxxxxess@gmail.com or via phone at xxxxxxx.
 
 I am the owner of the copyright material and have a good faith belief that use of the material in the manner complained is not authorized by me. It was inserted into these videos and uploaded without my prior knowledge or consent without fair use.
 
