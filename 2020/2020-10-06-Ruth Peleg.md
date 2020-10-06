@@ -20,4 +20,4 @@ The information in this notice is true and accurate and under penalty of perjury
 
 Immediately below is my real name which constitutes my electronic signature.
 
-Ruth Peleg
+Ruth Ruthless
