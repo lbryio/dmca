@@ -1,7 +1,7 @@
 ﻿
 Dear Sir or Madam,
 
-This is a notice in accordance with the Digital Millennium Copyright Act of 1998 and the Berne Convention requesting that you immediately cease to provide access to copyrighted material(s).
+This is a notice in accordance with the Digital Millennium Copyright Act of 1998 and the Berne Convention requesting that you immediately cease to provide access to copyrighted material(s). https://lbry.tv/@Porn_channel:8/Tiffanyfox_facialabuse:2
 
 I have a good faith belief that the use of the described material(s) in the manner complained of is not authorized by the copyright owner, its agent, or the law.
 
