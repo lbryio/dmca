@@ -1,3 +1,4 @@
+This DMCA was disputed, see bottom of report
 Dear Sir,
 
 
@@ -53,3 +54,22 @@ I undertake and state that I have a good faith belief that the use of the materi
 I undertake and state that the aforementioned information is accurate and that I am authorized to act on the intellectual property owner's behalf.
 I undertake that the information in the notification is accurate and that the complaining party is authorized to act on behalf of the owner of an exclusive right that is allegedly infringed.
 Looking forward to your take down confirmation.
+
+
+Counter DMCA:
+
+Hello
+
+My 12 videos were removed from LBRY account:https://lbry.tv/@WhiteHatSr:e
+The DMCA complaints which you must have received from most probably someone from WhiteHatJr company is false. They DO NOT own the videos in what so ever manner.
+
+Short summary of the issue: There is a scam company called WhiteHatJr which is scamming poor parents and their kids in these pandemic times. I made videos to expose this scam. Those videos were basically my opinion about the company, my questions regarding their unethical behavior, false marketing, poor product, and fake reviews on google play store. The companies ORM team started removing my videos and eventually, 2 of my youtube channels got suspended.
+Hence I made an account on LBRY.
+After 2 months of appeals and social media awareness campaign, ALL my videos got reinstated by youtube. Please check this Forbes Article to validate what I have said above.
+https://www.forbesindia.com/article/take-one-big-story-of-the-day/whitehat-jr-and-the-curious-case-of-disappearing-dissent/63627/1
+https://news.ycombinator.com/item?id=24867212
+
+Please reinstate my videos as I own all those videos, which even youtube has expected.
+
+Regards
+Pradeep Poonia.
