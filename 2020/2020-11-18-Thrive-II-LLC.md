@@ -15,6 +15,9 @@ THRIVE II: THIS IS WHAT IT TAKES (2020)
 2. Copyright infringing material or activity found at the following location(s):  
   
 [http://lbry.tv/@comprendrelenouvelleordremondial:9/thrive-2-vostfr:b](http://lbry.tv/@comprendrelenouvelleordremondial:9/thrive-2-vostfr:b)  
+[http://lbry.tv/@Korgone:e/La-v%C3%A9rit%C3%A9-na%C3%AEt-pas-borgne-hors-s%C3%A9rie-film-Thrive-2-vostfr:d](http://lbry.tv/@Korgone:e/La-v%C3%A9rit%C3%A9-na%C3%AEt-pas-borgne-hors-s%C3%A9rie-film-Thrive-2-vostfr:d)
+[http://lbry.tv/Thrive-II--This-Is-What-it-Takes:5](http://lbry.tv/Thrive-II--This-Is-What-it-Takes:5)
+
   
 We have a good faith belief that use of the copyrighted materials described above on the Website is not authorized by the copyright owner, its agent, or the law.  
   
