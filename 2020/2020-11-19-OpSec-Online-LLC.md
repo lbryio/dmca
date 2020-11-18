@@ -90,3 +90,18 @@ TRUE DETECTIVE (2014)
 [http://lbry.tv/@TheRCWRshow:5/true-detective-season-3-episode-8-now-am:9](http://lbry.tv/@TheRCWRshow:5/true-detective-season-3-episode-8-now-am:9)
   
 Any further inquiries can be directed to [hbo@ap.opsecsecurity.com](mailto:hbo@ap.opsecsecurity.com).
+
+WWE has discovered that its copyrighted images and programming have been uploaded to various users accounts on your site, without the authorization of WWE. A sampling of this infringing content is located at a representative sample of the following URLs:
+
+http://lbry.tv/@EverythingEnigma:f/smackdown-wwe-draft-day-1-sasha-banks-vs:f
+http://lbry.tv/@fearless_nation:3/WWE-Friday-Night-SmackDown-(2020-09-04):a
+http://lbry.tv/@lordoftruth:2/Women%E2%80%99s-Money-in-the-Bank:8
+http://lbry.tv/@t-series:8/john-cena-return-to-monday-night-raw-7:5
+http://lbry.tv/@WWeWrestling:c/WWE-Money-in-the-Bank-2020:9
+
+Identification of copyrighted work(s):
+
+WWE: SMACKDOWN
+WWE MONEY IN THE BANK
+WWE: RAW
+
