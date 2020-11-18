@@ -19,6 +19,6 @@ Should you wish to discuss this with me please contact me directly.
 
 Thank you.
 
-Arcadi Ballester
+Arcadi Ballester.
 <personal information redacted>
 
