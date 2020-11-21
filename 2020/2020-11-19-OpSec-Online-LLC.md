@@ -105,3 +105,137 @@ WWE: SMACKDOWN
 WWE MONEY IN THE BANK
 WWE: RAW
 
+1. Identification of copyrighted work(s):
+BAD EDUCATION (2019)
+BAND OF BROTHERS (2001)
+CHERNOBYL (2019)
+I KNOW THIS MUCH IS TRUE (2020)
+MRS. FLETCHER (2019)
+OUTSIDER (2020), THE
+PACIFIC (2010), THE
+STRIKE BACK (2010)
+
+2. Copyright infringing material or activity found at the following location(s):
+
+http://lbry.tv/@MitsuFreeMovies:e/Bad.Education.2019:9
+http://lbry.tv/@TVCube:9/Band-Of-Brothers-S01E01:4
+http://lbry.tv/@TVCube:9/Band-Of-Brothers-S01E02:6
+http://lbry.tv/@TVCube:9/Band-Of-Brothers-S01E03:a
+http://lbry.tv/@TVCube:9/Band-Of-Brothers-S01E04:7
+http://lbry.tv/@TVCube:9/Band-Of-Brothers-S01E05:a
+http://lbry.tv/@TVCube:9/Band-Of-Brothers-S01E06:0
+http://lbry.tv/@TVCube:9/Band-Of-Brothers-S01E07:7
+http://lbry.tv/@TVCube:9/Band-Of-Brothers-S01E08:c
+http://lbry.tv/@TVCube:9/Band-Of-Brothers-S01E09:a
+http://lbry.tv/@TVCube:9/Band-Of-Brothers-S01E10:b
+http://lbry.tv/@Chernobyl-HBO:3/ChernobylE01:5
+http://lbry.tv/@Chernobyl-HBO:3/ChernobylSE04:2
+http://lbry.tv/@DirtyDiana:4/chernobyls01e01720pwebripx264-tbsettv:b
+http://lbry.tv/@Peliculasespa%C3%B1ol:c/CHERNOBYL-T-1-CAP-1--REIDIOMAN:b
+http://lbry.tv/@Peliculasespa%C3%B1ol:c/CHERNOBYL-T-1-CAP-2---SERIESLATINASHD:7
+http://lbry.tv/@Peliculasespa%C3%B1ol:c/CHERNOBYL-T-1-CAP-3--SERIESLATINASHD:0
+http://lbry.tv/@Peliculasespa%C3%B1ol:c/CHERNOBYL-T-1-CAP-4--SERIESLATINASHD:6
+http://lbry.tv/@Peliculasespa%C3%B1ol:c/CHERNOBYL-T1-CAP-5-SERIESLATINASHD:1
+http://lbry.tv/@SeriesGratis:7/CH3RN0BYL-LAT-T01XE01:a
+http://lbry.tv/@ATABALIPA:e/I.Know.This.Much.Is.True.S01E01.iNTERNAL.720p.WEB.h264-HILLARY-HI:f
+http://lbry.tv/@ATABALIPA:e/I.Know.This.Much.Is.True.S01E02.PROPER.720p.WEB.H264-BTX-HI:d
+http://lbry.tv/@ATABALIPA:e/i.know.this.much.is.true.s01e03.web.h264-btx-ENHI:d
+http://lbry.tv/@ATABALIPA:e/I.Know.This.Much.is.True.S01E04.720p.AMZN.WEB-DL.DDP5.1.H.264-TEPES:7
+http://lbry.tv/@ATABALIPA:e/I.Know.This.Much.Is.True.S01E05.XviD-AFG:d
+http://lbry.tv/@ATABALIPA:e/I.Know.This.Much.Is.True.S01E06.XviD-AFG:c
+http://lbry.tv/@HDlatino:6/fletcher-serie-audiolatino:3
+http://lbry.tv/@HDlatino:6/milf-fletcher-cap4:1
+http://lbry.tv/@HDlatino:6/series-taboo-fletcher:a
+http://lbry.tv/@sandovaladrian129:2/fletcher-serie-cap7:6
+http://lbry.tv/@lockdown:5/the-outsider-(2020)-%E2%80%A2-tvseries:6
+http://lbry.tv/@lockdown:5/the-outsider-2020-s01-e05---tear-drinker:1
+http://lbry.tv/@lockdown:5/the-outsider-2020-s01-e07---in-the-pines-in-the-pines:3
+http://lbry.tv/@lockdown:5/the-outsider-2020-s01-e08---foxhead:4
+http://lbry.tv/@oscura:7/The.Outsider.2020.S01E05.Tear-Drinker.720p.AMZN.WEB-DL.DDP5.1.H.264-NTb:4
+http://lbry.tv/@oscura:7/The.Outsider.2020.S01E06.The.One.About.The.Yiddish.Vampire.1080p.AMZN.WEB-DL.DDP5.1.H.264-NTb:d
+http://lbry.tv/@arqhsaavedra:1/The-Pacific-Ep-08:5
+http://lbry.tv/@solojuan30:f/t_video5085018215042515039:e
+
+We have a good faith belief that use of the copyrighted materials described above on the Website is not authorized by the copyright owner, its agent, or the law.
+
+
+We have noticed that your website is displaying, promoting and/or offering audiovisual (A/V) content from Globo's TV shows:
+TOTALMENTE DEMAIS (2020)
+BIG BROTHER BRASIL (2020)
+
+Copyright infringing material or activity found at the following URLs:
+http://lbry.tv/@alltv:c/breakable-hanging-eel:3
+http://lbry.tv/@alltv:c/jagged-verdant-scorpion:e
+http://lbry.tv/@alltv:c/TotalmenteDemais:f
+http://lbry.tv/@alltv:c/TotalmenteDemais2:a
+http://lbry.tv/@alltv:c/well-made-frightened-jaguar:4
+http://lbry.tv/@alltv:c/wretched-old-gerbil:3
+http://lbry.tv/@Bbb20:1/Big-Brother-Brasil-on-Instagram_-__RETAFINAL----_(MP4):d
+
+
+
+1. Identification of copyrighted work(s):
+OUTSIDER (2020), THE
+REAL TIME WITH BILL MAHER (2003)
+
+2. Copyright infringing material or activity found at the following location(s):
+
+http://lbry.tv/@lockdown:5/the-outsider-2020-s01-e06-the-one-about-the-yiddish-vampire:1
+http://lbry.tv/@oscura:7/the.outsider.2020.s01e03.720p.webrip.x264-tbs:3
+http://lbry.tv/@runningbear:9/real-time-with-bill-maher-october-11:6
+
+We have a good faith belief that use of the copyrighted materials described above on the Website is not authorized by the copyright owner, its agent, or the law.
+
+WWE has discovered that its copyrighted images and programming have been uploaded to various users accounts on your site, without the authorization of WWE. A sampling of this infringing content is located at a representative sample of the following URLs:
+
+http://lbry.tv/@fearless_nation:3/WWE-Main-Event-(2020-09-04):7
+http://lbry.tv/@fearless_nation:3/WWE-Monday-Night-RAW-2020-08-10:3
+http://lbry.tv/@fearless_nation:3/WWE-Monday-Night-RAW-2020-08-10-EXTENDED:8
+http://lbry.tv/@fearless_nation:3/WWE-Monday-Night-RAW-2020-08-17:8
+http://lbry.tv/@fearless_nation:3/WWE-Monday-Night-RAW-2020-08-17-EXTENDED:0
+http://lbry.tv/@fearless_nation:3/WWE-NXT-(2020-09-01):5
+http://lbry.tv/@fearless_nation:3/WWE-NXT-2020-08-12:c
+http://lbry.tv/@fearless_nation:3/WWE-NXT-2020-08-13:2
+http://lbry.tv/@fearless_nation:3/WWE-NXT-2020-08-19:4
+http://lbry.tv/@wrestlingreality:2/wwe-smackdown---11-january-2020-:4
+
+Identification of copyrighted work(s):
+
+WWE MAIN EVENT REPLAYS
+WWE: RAW
+WWE NXT
+WWE: SMACKDOWN
+
+WWE demands the immediate removal of these videos, broadcasts, and these user accounts. I have good faith belief that the use of the copyrighted materials described above and contained on the service is not authorized by the copyright owner, WWE, its agent, or by protection of law.
+
+
+
+Representative List of Copyright Owners:
+Metro-Goldwyn-Mayer Studios Inc.
+
+Item/Material:
+http://lbry.tv/@Series360:a/Vikings-T03-E05-480p:7
+http://lbry.tv/@Series360:a/Vikings-T03-E06-480p:5
+http://lbry.tv/@Series360:a/Vikings-T03-E07-480p:c
+http://lbry.tv/@Series360:a/Vikings-T03-E08-480p:1
+http://lbry.tv/@Series360:a/Vikings-T03-E09-480p:f
+http://lbry.tv/@Series360:a/Vikings-T03-E10-480p:8
+http://lbry.tv/@Series360:a/Vikings-T04-E01-480p:5
+http://lbry.tv/@Series360:a/Vikings-T04-E02-480p:b
+http://lbry.tv/@Series360:a/Vikings-T04-E03-480p:3
+http://lbry.tv/@Series360:a/Vikings-T04-E04-480p:f
+http://lbry.tv/@Series360:a/Vikings-T04-E05-480p:f
+http://lbry.tv/@Series360:a/Vikings-T04-E06-480p:5
+http://lbry.tv/@Series360:a/Vikings-T04-E07-480p:d
+http://lbry.tv/@Series360:a/Vikings-T04-E08-480p:e
+http://lbry.tv/@Series360:a/Vikings-T04-E09-480p:7
+http://lbry.tv/@Series360:a/Vikings-T04-E10-480p:d
+
+
+1. Identification of copyrighted work(s):
+IMPRACTICAL JOKERS (2011)
+
+2. Copyright infringing material or activity found at the following location(s):
+
+http://lbry.tv/@james886432:0/Blade.Runner.Final.Cut.1997.720p.BluRay.x264.YIFY:f
+
