@@ -5,6 +5,12 @@ Please remove the following unauthorized links from you service:
 https://odysee.com/@DemAndy_Austria:c/A-Thousand-Pieces---A-True-Conspiracy-Documentary-1:0
 
 
+https://odysee.com/A-Thousand-Pieces---A-True-Conspiracy-Documentary-PY8GaleLKpg:c
+
+https://odysee.com/@QuantumRhino:9/The-Phenomenon-(2020)-1080p:d
+
+https://odysee.com/@Loveforseasons:6/The.Phenomenon:4
+
 These links are in violation of Infamous Entertainment's copyright and distribution rights.
 
 These links are an unauthorized usage of our movies
