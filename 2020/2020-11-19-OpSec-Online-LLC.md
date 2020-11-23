@@ -251,3 +251,17 @@ We have a good faith belief that use of the copyrighted materials described abov
 Accordingly, TBS requests that http://www.lbry.tv immediately cease access to the TBS Properties in connection with the Website, and further requests that http://www.lbry.tv confirms in writing to the undersigned that (i) access to the TBS Properties has been removed and that (ii) appropriate actions have been taken against the account holder under your Abuse Policy/Terms of Service Agreement.
 
 https://lbry.tv/Midsommar.2019.1080p-dual-lat-cinecalidad.is:4
+
+
+Title of Work Infringed:
+COBRA KAI (2018)
+
+Type of Work Infringed:
+YouTube Original video production
+
+Copyright Owner:
+Sony Pictures Television INC
+
+LINKS TO INFRINGING CONTENT:
+http://lbry.tv/@Tikslolo:f/school-fight-cobra-kai-season-2-part-2:c
+
