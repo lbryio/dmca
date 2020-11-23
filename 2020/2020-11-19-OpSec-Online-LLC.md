@@ -239,3 +239,13 @@ IMPRACTICAL JOKERS (2011)
 
 http://lbry.tv/@james886432:0/Blade.Runner.Final.Cut.1997.720p.BluRay.x264.YIFY:f
 
+1. Identification of copyrighted work(s):
+IMPRACTICAL JOKERS (2011)
+
+2. Copyright infringing material or activity found at the following location(s):
+
+http://lbry.tv/@Comedy:d/impractical-jokers-worst-challenges-full:1
+
+We have a good faith belief that use of the copyrighted materials described above on the Website is not authorized by the copyright owner, its agent, or the law.
+
+Accordingly, TBS requests that http://www.lbry.tv immediately cease access to the TBS Properties in connection with the Website, and further requests that http://www.lbry.tv confirms in writing to the undersigned that (i) access to the TBS Properties has been removed and that (ii) appropriate actions have been taken against the account holder under your Abuse Policy/Terms of Service Agreement.
