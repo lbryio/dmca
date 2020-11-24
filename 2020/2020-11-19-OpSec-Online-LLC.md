@@ -265,3 +265,11 @@ Sony Pictures Television INC
 LINKS TO INFRINGING CONTENT:
 http://lbry.tv/@Tikslolo:f/school-fight-cobra-kai-season-2-part-2:c
 
+1. Identification of copyrighted work(s):
+TRUMP CARD (2020)
+
+2. Copyright infringing material or activity found at the following location(s):
+
+http://lbry.tv/@Ril-Tells-You-Truth:9/watch-trump-card-full-movie-lbry-ril:5
+
+
