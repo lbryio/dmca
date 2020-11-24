@@ -131,11 +131,11 @@ http://lbry.tv/@TVCube:9/Band-Of-Brothers-S01E10:b
 http://lbry.tv/@Chernobyl-HBO:3/ChernobylE01:5
 http://lbry.tv/@Chernobyl-HBO:3/ChernobylSE04:2
 http://lbry.tv/@DirtyDiana:4/chernobyls01e01720pwebripx264-tbsettv:b
-http://lbry.tv/@Peliculasespa%C3%B1ol:c/CHERNOBYL-T-1-CAP-1--REIDIOMAN:b
-http://lbry.tv/@Peliculasespa%C3%B1ol:c/CHERNOBYL-T-1-CAP-2---SERIESLATINASHD:7
-http://lbry.tv/@Peliculasespa%C3%B1ol:c/CHERNOBYL-T-1-CAP-3--SERIESLATINASHD:0
-http://lbry.tv/@Peliculasespa%C3%B1ol:c/CHERNOBYL-T-1-CAP-4--SERIESLATINASHD:6
-http://lbry.tv/@Peliculasespa%C3%B1ol:c/CHERNOBYL-T1-CAP-5-SERIESLATINASHD:1
+http://lbry.tv/@Peliculasespañol:c/CHERNOBYL-T-1-CAP-1--REIDIOMAN:b
+http://lbry.tv/@Peliculasespañol:c/CHERNOBYL-T-1-CAP-2---SERIESLATINASHD:7
+http://lbry.tv/@Peliculasespañol:c/CHERNOBYL-T-1-CAP-3--SERIESLATINASHD:0
+http://lbry.tv/@Peliculasespañol:c/CHERNOBYL-T-1-CAP-4--SERIESLATINASHD:6
+http://lbry.tv/@Peliculasespañol:c/CHERNOBYL-T1-CAP-5-SERIESLATINASHD:1
 http://lbry.tv/@SeriesGratis:7/CH3RN0BYL-LAT-T01XE01:a
 http://lbry.tv/@ATABALIPA:e/I.Know.This.Much.Is.True.S01E01.iNTERNAL.720p.WEB.h264-HILLARY-HI:f
 http://lbry.tv/@ATABALIPA:e/I.Know.This.Much.Is.True.S01E02.PROPER.720p.WEB.H264-BTX-HI:d
@@ -147,7 +147,7 @@ http://lbry.tv/@HDlatino:6/fletcher-serie-audiolatino:3
 http://lbry.tv/@HDlatino:6/milf-fletcher-cap4:1
 http://lbry.tv/@HDlatino:6/series-taboo-fletcher:a
 http://lbry.tv/@sandovaladrian129:2/fletcher-serie-cap7:6
-http://lbry.tv/@lockdown:5/the-outsider-(2020)-%E2%80%A2-tvseries:6
+http://lbry.tv/@lockdown:5/the-outsider-(2020)-•-tvseries:6
 http://lbry.tv/@lockdown:5/the-outsider-2020-s01-e05---tear-drinker:1
 http://lbry.tv/@lockdown:5/the-outsider-2020-s01-e07---in-the-pines-in-the-pines:3
 http://lbry.tv/@lockdown:5/the-outsider-2020-s01-e08---foxhead:4
@@ -155,6 +155,7 @@ http://lbry.tv/@oscura:7/The.Outsider.2020.S01E05.Tear-Drinker.720p.AMZN.WEB-DL.
 http://lbry.tv/@oscura:7/The.Outsider.2020.S01E06.The.One.About.The.Yiddish.Vampire.1080p.AMZN.WEB-DL.DDP5.1.H.264-NTb:d
 http://lbry.tv/@arqhsaavedra:1/The-Pacific-Ep-08:5
 http://lbry.tv/@solojuan30:f/t_video5085018215042515039:e
+
 
 We have a good faith belief that use of the copyrighted materials described above on the Website is not authorized by the copyright owner, its agent, or the law.
 
@@ -272,4 +273,12 @@ TRUMP CARD (2020)
 
 http://lbry.tv/@Ril-Tells-You-Truth:9/watch-trump-card-full-movie-lbry-ril:5
 
+1. Identification of copyrighted work(s):
+THRIVE II: THIS IS WHAT IT TAKES (2020)
+
+2. Copyright infringing material or activity found at the following location(s):
+
+http://lbry.tv/@Sicoenergetica:e/Thrive-2--parte-1-ok:3
+
+http://lbry.tv/@Sicoenergetica:e/Thrive-2-parte-2-ok:3
 
