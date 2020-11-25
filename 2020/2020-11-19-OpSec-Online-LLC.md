@@ -282,3 +282,13 @@ http://lbry.tv/@Sicoenergetica:e/Thrive-2--parte-1-ok:3
 
 http://lbry.tv/@Sicoenergetica:e/Thrive-2-parte-2-ok:3
 
+1. Identification of copyrighted work(s):
+THRIVE II: THIS IS WHAT IT TAKES (2020)
+
+2. Copyright infringing material or activity found at the following location(s):
+
+http://lbry.tv/@DiscreetL:6/thrive_2_vostfr_dans_ce_thrive_vous_verrez_un_appareil_a_energie:c
+http://lbry.tv/@Operation.Metatron:0/Thrive-2:5
+http://lbry.tv/@Yvan:0/Thrive-2----ce-que-dois-comprendre-pour-changer-ce-monde...-pour-l'amour-pour-les-gosses.-pour-demain..-:3
+
+
