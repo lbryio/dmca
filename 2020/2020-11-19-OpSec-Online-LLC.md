@@ -292,3 +292,13 @@ http://lbry.tv/@Operation.Metatron:0/Thrive-2:5
 http://lbry.tv/@Yvan:0/Thrive-2----ce-que-dois-comprendre-pour-changer-ce-monde...-pour-l'amour-pour-les-gosses.-pour-demain..-:3
 
 
+1. Identification of copyrighted work(s):
+TRUMP CARD (2020)
+
+2. Copyright infringing material or activity found at the following location(s):
+
+http://lbry.tv/@bambaferko:7/trump_card:1
+http://lbry.tv/@DreamCreator:9/Trump-Card-2020:c
+http://lbry.tv/@Ril-Tells-You-Truth:5/Trump-Card-ril-tells-you-truth:7
+
+We have a good faith belief that use of the copyrighted materials described above on the Website is not authorized by the copyright owner, its agent, or the law.
