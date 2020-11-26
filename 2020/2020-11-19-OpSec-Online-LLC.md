@@ -346,3 +346,35 @@ http://lbry.tv/On-The-Rocks.2020:8
 Sincerely,
 Debra Giddings,
 OpSec Online LLC
+
+
+http://lbry.tv/@Tikslolo:f/school-fight-cobra-kai-season-2-part-1:8
+http://lbry.tv/@Tikslolo:f/school-fight-cobra-kai-season-2-part-3:8
+
+
+1. Identification of copyrighted work(s):
+BAD EDUCATION (2019)
+CHERNOBYL (2019)
+LEAVING NEVERLAND (2019)
+TOO BIG TO FAIL (2011)
+
+2. Copyright infringing material or activity found at the following location(s):
+
+http://lbry.tv/@Cinemalaya:1/bad-education-720p-full-movie:2
+http://lbry.tv/@Chernobyl-HBO:3/ChernobylE02:7
+http://lbry.tv/@Series360:a/Chernobyl-S01E05.2019.480p:4
+http://lbry.tv/@DOCUMENTALES:b/Leaving-Neverland:e
+http://lbry.tv/@MrPiche:c/Too-Big-To-Fail:6
+
+1. Identification of copyrighted work(s):
+RAISED BY WOLVES (2020)
+UNPREGNANT (2020)
+
+2. Copyright infringing material or activity found at the following location(s):
+
+http://lbry.tv/Raised-By-Wolves---T1-Cap.101-Castellano:6
+http://lbry.tv/Unpregnan1:0
+
+
+Copyright infringing material or activity found at the following URLs:
+http://lbry.tv/totalmente-demais:e
