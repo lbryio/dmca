@@ -302,3 +302,31 @@ http://lbry.tv/@DreamCreator:9/Trump-Card-2020:c
 http://lbry.tv/@Ril-Tells-You-Truth:5/Trump-Card-ril-tells-you-truth:7
 
 We have a good faith belief that use of the copyrighted materials described above on the Website is not authorized by the copyright owner, its agent, or the law.
+
+Representative List of Copyright Owners:
+EPIX Entertainment LLC
+Metro-Goldwyn-Mayer Studios Inc.
+UADS LLC
+
+Item/Material:
+http://lbry.tv/@Cinema:f9/El-silencio-de-los-inocentes:c
+http://lbry.tv/@Cinema:f9/Rocky-3:4
+http://lbry.tv/@CinePeliculas:c/The-Hustle-2019:a
+http://lbry.tv/@filmcinema:4/Death.Wish.2018.MULTI.TRUEFRENCH.1080p.HDLight.x264:c
+http://lbry.tv/@JamesBond:6/James.Bond.Tomorrow.Never.Dies.1997:9
+http://lbry.tv/@La-derniere-seance-de-retour:4/James-Bond-Contre-Docteur-No:5
+http://lbry.tv/@MOVIES.HDR:1/Wind-River-(2017):4
+http://lbry.tv/@Peliculas360:d/Wind.River.2017.480p:7
+http://lbry.tv/@SoNkOne_DestruyendoJuntosAL-NWO:7/The-panama-papers-Los-papeles-de-panama-Vo-Sub-Espa%C3%B1ol:6
+http://lbry.tv/@Stargate-movies:e/Stargate-Origins-Catherine-(2018)-HDRip-720p-x264---SHADOW:e
+http://lbry.tv/@tecnoeco2021:a/Triple.threat.2019.1080p-dual-lat-cinecalidad.is:4
+http://lbry.tv/@tengmovies:d/The-Silence-Of-The-Lambs:3
+
+
+1. Identification of copyrighted work(s):
+TRUMP CARD (2020)
+
+2. Copyright infringing material or activity found at the following location(s):
+
+http://lbry.tv/Trump-Card-Movie-2020-by-dinesh-Desouza:0
+
