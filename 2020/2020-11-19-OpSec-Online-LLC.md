@@ -383,3 +383,15 @@ http://lbry.tv/totalmente-demais:e
 http://lbry.tv/limetown-a-look-inside-featurette:1
 
 http://lbry.tv/@mihail5555:8/%D0%B8%D0%B3%D1%80%D0%B0-%D0%BF%D1%80%D0%B5%D1%81%D1%82%D0%BE%D0%BB%D0%BE%D0%B2-1-2-(Game-of-Thrones):d
+
+https://lbry.tv/@Yvan:0/Thrive-2----ce-que-dois-comprendre-pour-changer-ce-monde...-pour-l'amour-pour-les-gosses.-pour-demain..-:3
+
+Copyright Owner:
+Bandai Namco Arts Inc.
+
+LINKS TO INFRINGING CONTENT:
+http://lbry.tv/OBSOLETE---01:6
+http://lbry.tv/OBSOLETE---02:c
+http://lbry.tv/OBSOLETE---03:6
+http://lbry.tv/OBSOLETE---04:9
+http://lbry.tv/OBSOLETE---05:6
