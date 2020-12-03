@@ -395,3 +395,15 @@ http://lbry.tv/OBSOLETE---02:c
 http://lbry.tv/OBSOLETE---03:6
 http://lbry.tv/OBSOLETE---04:9
 http://lbry.tv/OBSOLETE---05:6
+
+
+1. Identification of copyrighted work(s):
+BAD EDUCATION (2019)
+FAHRENHEIT 451 (2018)
+MIKE TYSON: UNDISPUTED TRUTH (2013)
+
+2. Copyright infringing material or activity found at the following location(s):
+
+http://lbry.tv/@movieshot:e/Mala.Edu:d
+http://lbry.tv/@nuke:b/fahrenheit451:f
+http://lbry.tv/Mike-Tyson---Undisputed-Truth--2013-:5
