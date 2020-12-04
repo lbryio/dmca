@@ -407,3 +407,6 @@ MIKE TYSON: UNDISPUTED TRUTH (2013)
 http://lbry.tv/@movieshot:e/Mala.Edu:d
 http://lbry.tv/@nuke:b/fahrenheit451:f
 http://lbry.tv/Mike-Tyson---Undisputed-Truth--2013-:5
+
+http://lbry.tv/@DocuTV:4/Diego-Maradona-(2019):2
+http://lbry.tv/@pjbtoo:9/Diego.Maradona.2019:a
