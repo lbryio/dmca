@@ -413,3 +413,21 @@ http://lbry.tv/@pjbtoo:9/Diego.Maradona.2019:a
 
 
 http://lbry.tv/@carlosantonio:5/Midsommar:a
+
+https://lbry.tv/@anim:e/OBSOLETE---06:9
+
+Representative List of Titles:
+GREENLAND (2020)
+
+Examples of Locations Where Infringing Materials Can Be Found:
+http://lbry.tv/@AndrzejPolska:d/Greenland.2020.PL.1080p.AMZN.WEB-DL.x264.AC3-KRT:a
+http://lbry.tv/@Master_System:e/Greenland---Le-dernier-refuge-_-Fr--Thriller-:1
+
+1. Identification of copyrighted work(s):
+TRUMP CARD (2020)
+INFIDEL (2020)
+
+2. Copyright infringing material or activity found at the following location(s):
+
+http://lbry.tv/@QKross2:3/Trump-Card-(2020):3
+http://lbry.tv/@QuantumRhino:9/Watch-Infidel:1
