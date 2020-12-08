@@ -431,3 +431,11 @@ INFIDEL (2020)
 
 http://lbry.tv/@QKross2:3/Trump-Card-(2020):3
 http://lbry.tv/@QuantumRhino:9/Watch-Infidel:1
+
+Representative List of Copyright Owners:
+Metro-Goldwyn-Mayer Studios Inc.
+
+Item/Material:
+http://lbry.tv/@Vikings:81/Vikings.S01E01.720p.Hin-Eng:6
+http://lbry.tv/@Vikings:81/Vikings.S01E02.720p.Hin-Eng:f
+http://lbry.tv/@Vikings:81/Vikings.S01E02.720p.Hin-Engl:7
