@@ -35,7 +35,7 @@ Our use of a notice in this form, as required by you, is meant to facilitate you
 
 In addition, this notice does not constitute a waiver of any right to recover damages incurred by virtue of any unauthorised activities described in this notice, and such rights as well as claims for other relief under the laws of the United States or any applicable legislation in any other jurisdiction, are hereby expressly reserved.
 
-You may contact me at IFPI Secretariat, 7 Air Street, London W1B 5AD, United Kingdom or email Notices@ifpi.org, to discuss this notice.
+You may contact me at IFPI Secretariat, United Kingdom or email Notices@ifpi.org, to discuss this notice.
 
 We await your response.
 
