@@ -444,5 +444,12 @@ http://lbry.tv/@Vikings:81/Vikings.S01E02.720p.Hin-Engl:7
 Representative List of Titles:
 GREENLAND (2020)
 
+
+Addendum to Notice of Infringement
+
+Links to be removed:
+
+http://lbry.tv/@Pel%C3%ADculas-infantiles-by-geralt78:2/Ballerina.2016.1080p-dual-lat:4
+http://lbry.tv/Divergent-(2014):c 
 Examples of Locations Where Infringing Materials Can Be Found:
 http://lbry.tv/@LaVid%C3%A9oth%C3%A8queD'Olivier:4/Greenland---Le-dernier-refuge-Film-Complet-en-Fr:f
