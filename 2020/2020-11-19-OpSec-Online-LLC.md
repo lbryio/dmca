@@ -453,3 +453,15 @@ http://lbry.tv/@Pel%C3%ADculas-infantiles-by-geralt78:2/Ballerina.2016.1080p-dua
 http://lbry.tv/Divergent-(2014):c 
 Examples of Locations Where Infringing Materials Can Be Found:
 http://lbry.tv/@LaVid%C3%A9oth%C3%A8queD'Olivier:4/Greenland---Le-dernier-refuge-Film-Complet-en-Fr:f
+
+Exhibit A to Notice of Infringement
+
+List of Infringing Item or Material
+
+Representative List of Copyright Owners:
+Metro-Goldwyn-Mayer Studios Inc.
+
+Item/Material:
+http://lbry.tv/@007:0/007-contra-goldfinger:1
+http://lbry.tv/@La-derniere-seance-3:2/Le-Silence-des-Agneaux-%E2%97%8F-1991-%E2%97%8F-DVDRiP-converted:7
+http://lbry.tv/@La-derniere-seance-3:2/Thelma-Et-Louise-1991:8
