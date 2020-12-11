@@ -465,3 +465,10 @@ Item/Material:
 http://lbry.tv/@007:0/007-contra-goldfinger:1
 http://lbry.tv/@La-derniere-seance-3:2/Le-Silence-des-Agneaux-%E2%97%8F-1991-%E2%97%8F-DVDRiP-converted:7
 http://lbry.tv/@La-derniere-seance-3:2/Thelma-Et-Louise-1991:8
+
+
+THRIVE II: THIS IS WHAT IT TAKES (2020)
+
+2. Copyright infringing material or activity found at the following location(s):
+
+http://lbry.tv/THRIVE-2:f
