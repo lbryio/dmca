@@ -472,3 +472,22 @@ THRIVE II: THIS IS WHAT IT TAKES (2020)
 2. Copyright infringing material or activity found at the following location(s):
 
 http://lbry.tv/THRIVE-2:f
+
+
+1. Identification of copyrighted work(s):
+BAND OF BROTHERS (2001)
+
+2. Copyright infringing material or activity found at the following location(s):
+
+http://lbry.tv/@mayorwarlord:1/hermanos-de-sangre-parte-10-puntos:e
+http://lbry.tv/@mayorwarlord:1/hermanos-de-sangre-parte-1-Currahee:c
+http://lbry.tv/@mayorwarlord:1/hermanos-de-sangre-parte-2-el-dia-D:4
+http://lbry.tv/@mayorwarlord:1/hermanos-de-sangre-parte-3-carentan:b
+http://lbry.tv/@mayorwarlord:1/hermanos-de-sangre-parte-4-reemplazos:e
+http://lbry.tv/@mayorwarlord:1/hermanos-de-sangre-parte-5-la-encrucijada:3
+http://lbry.tv/@mayorwarlord:1/hermanos-de-sangre-parte-6-bastogne:c
+http://lbry.tv/@mayorwarlord:1/hermanos-de-sangre-parte-7-punto-limite:7
+http://lbry.tv/@mayorwarlord:1/hermanos-de-sangre-parte-8-la-ultima-patrulla:8
+http://lbry.tv/@mayorwarlord:1/hermanos-de-sangre-parte-9-por-que-luchamos:d
+
+http://lbry.tv/@Loveforseasons:6/Happiest.Season.2020:9
