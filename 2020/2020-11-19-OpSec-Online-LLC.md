@@ -507,3 +507,13 @@ http://lbry.tv/@SuperPeliculas:9/Greyhound-espa%C3%B1ol-latino:c
 http://lbry.tv/Greyhound.2020.1080p:1
 
  http://lbry.tv/@Sendilkelm:a/Vikings-Best-Moments-of-Ragnar-Lothbrok:f
+LINKS TO INFRINGING CONTENT:
+http://lbry.tv/@Detodounpoco2:a/Cobra-Kai-S03E03-NF-WEB-DL:b
+http://lbry.tv/@Detodounpoco2:a/Cobra-Kai-S03E04-NF-WEB-DL:6
+http://lbry.tv/@Detodounpoco2:a/Cobra-Kai-S03E06-NF-WEB-DL:e
+http://lbry.tv/@Detodounpoco2:a/Cobra-Kai-S03E08-NF-WEB-DL:2
+
+
+Item/Material:
+http://lbry.tv/@Cinema_ITA:2/Terminator_1984_ITA:f
+http://lbry.tv/@VampirilloDeCine:9/Platoon---1986:9
