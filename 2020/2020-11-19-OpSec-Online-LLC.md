@@ -517,3 +517,7 @@ http://lbry.tv/@Detodounpoco2:a/Cobra-Kai-S03E08-NF-WEB-DL:2
 Item/Material:
 http://lbry.tv/@Cinema_ITA:2/Terminator_1984_ITA:f
 http://lbry.tv/@VampirilloDeCine:9/Platoon---1986:9
+
+
+http://lbry.tv/$/embed/The-Banker-(2020)-(1080p)--movies.frigiliana.one-/4f4830dff38401e8c0b13c5465a94929390f1231?r=7uvSKdeADWYdv7Tv6KENcyuadAeSm5qa
+http://lbry.tv/@vip:2/Greyhound.2020.1080p-dual-por-cinemaqualidade.li:a
