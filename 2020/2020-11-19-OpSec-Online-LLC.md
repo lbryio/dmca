@@ -532,3 +532,6 @@ http://lbry.tv/@Derniere.seance.5:f/Le-Silence-des-Agneaux-%E2%97%8F-1991-%E2%97
 https://lbry.tv/AXIOS+on+HBO_+President+Trump+Exclusive+Interview+(Full+Episode)+_+HBO+720p:b
 
 https://lbry.tv/@warlord:3/platoon-1986-oliver-stone:5
+
+https://lbry.tv/@TVSERIES:f/Vikings.S01E02.Wrath.of.the.Northmen.720p.BluRay.x264.400MB-Pahe.in-(1):1
+https://lbry.tv/@TVSERIES:f
