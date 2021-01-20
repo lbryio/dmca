@@ -535,3 +535,5 @@ https://lbry.tv/@warlord:3/platoon-1986-oliver-stone:5
 
 https://lbry.tv/@TVSERIES:f/Vikings.S01E02.Wrath.of.the.Northmen.720p.BluRay.x264.400MB-Pahe.in-(1):1
 https://lbry.tv/@TVSERIES:f
+
+ http://lbry.tv/@WisdomTheater3000:6/The.Dissident.2020.720p.WEBRip.800MB.x264-GalaxyRG:7
