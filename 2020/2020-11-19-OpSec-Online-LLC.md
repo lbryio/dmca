@@ -537,3 +537,7 @@ https://lbry.tv/@TVSERIES:f/Vikings.S01E02.Wrath.of.the.Northmen.720p.BluRay.x26
 https://lbry.tv/@TVSERIES:f
 
  http://lbry.tv/@WisdomTheater3000:6/The.Dissident.2020.720p.WEBRip.800MB.x264-GalaxyRG:7
+ 
+  http://lbry.tv/@AndrzejPolska:d/Dark.Waters.2019.PL.720p.BRRip.XViD.AC3-MORS:1 
+  
+  https://lbry.tv/@Book:7/WWE_Smackdown_08_January_2021_Highlights_HD_-_WWE_Smackdown_Live_08_January_2021_Highlights_HD(360p):6
