@@ -541,3 +541,7 @@ https://lbry.tv/@TVSERIES:f
   http://lbry.tv/@AndrzejPolska:d/Dark.Waters.2019.PL.720p.BRRip.XViD.AC3-MORS:1 
   
   https://lbry.tv/@Book:7/WWE_Smackdown_08_January_2021_Highlights_HD_-_WWE_Smackdown_Live_08_January_2021_Highlights_HD(360p):6
+  
+  Examples of Locations Where Infringing Materials Can Be Found:
+http://lbry.tv/@Ph%C3%A9nom%C3%A8nes_%C3%89tranges_et_Inexpliqu%C3%A9s:a/Watch-Greenland-2020-FRENCH-BDRip-XviD-EXTREME-Extreme-Down-Video-avi:3
+http://lbry.tv/@Truthspreader:3/Songbird-2020---The-Movie:8
