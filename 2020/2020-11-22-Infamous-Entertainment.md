@@ -33,4 +33,7 @@ I swear under penalty of perjury, that I am the copyright owner and authorized t
 Thank you for your help with this matter,
 
 https://lbry.tv/@QuantumRhino:9/athousandpieces:4
-
+https://odysee.com/@Ezio-Auditoree:d/A-Thousand-Pieces-EN-VOST-FR-CENSURED:2
+https://odysee.com/@Ezio-Auditoree:d/The-Phenomenon-(2020)-VOST-FR:b
+https://odysee.com/@Ph%C3%A9nom%C3%A8nes_%C3%89tranges_et_Inexpliqu%C3%A9s:a/The-Phenomenon---in%C3%A9dit---vostfr:a
+https://odysee.com/@Yan.Love:1/ThePhenomenon2020:1
