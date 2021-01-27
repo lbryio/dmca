@@ -545,3 +545,7 @@ https://lbry.tv/@TVSERIES:f
   Examples of Locations Where Infringing Materials Can Be Found:
 http://lbry.tv/@Ph%C3%A9nom%C3%A8nes_%C3%89tranges_et_Inexpliqu%C3%A9s:a/Watch-Greenland-2020-FRENCH-BDRip-XviD-EXTREME-Extreme-Down-Video-avi:3
 http://lbry.tv/@Truthspreader:3/Songbird-2020---The-Movie:8
+
+
+http://lbry.tv/@WWEManiak:6/wcw-worldwide-03-19-1995-po-polsku-pl:5
+http://lbry.tv/@WWEManiak:6/wcw-worldwide-04-16-1995-po-polsku-pl:c
