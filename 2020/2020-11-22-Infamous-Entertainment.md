@@ -37,3 +37,5 @@ https://odysee.com/@Ezio-Auditoree:d/A-Thousand-Pieces-EN-VOST-FR-CENSURED:2
 https://odysee.com/@Ezio-Auditoree:d/The-Phenomenon-(2020)-VOST-FR:b
 https://odysee.com/@Ph%C3%A9nom%C3%A8nes_%C3%89tranges_et_Inexpliqu%C3%A9s:a/The-Phenomenon---in%C3%A9dit---vostfr:a
 https://odysee.com/@Yan.Love:1/ThePhenomenon2020:1
+
+ http://lbry.tv/@cineoro:c/cineoro2-gran-torino-(2008)-clint-eastwood:f
