@@ -555,3 +555,7 @@ http://lbry.tv/@Truth_will_set_You_Free:0/Thrive-2---Foster-Gamble-Documentary-2
 https://lbry.tv/@retrofilm:3?page=1
 
 https://lbry.tv/@TV90s:c?view=about
+
+ http://lbry.tv/@cinextreme02:a/Ver-Wolfwalkers-(2020)-Online-Latino-HD---Pelisplus:e
+  http://lbry.tv/@carlosantonio:5/Llega-de-noche-(It-comes-at-night):f
+  https://lbry.tv/@NovelasFilmes:8/Haja-Cora%C3%A7%C3%A3o-Cap%C3%ADtulo-17:b
