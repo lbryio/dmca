@@ -39,9 +39,6 @@ https://lbry.tv/Jessica-Nigri-Red-Tie-Stockings:4
 
 Noah Downs
 Morrison Rothman LLP
-1801 Century Park East, 25th Floor
-Los Angeles, CA 90067
-(310) 556-9611
 Copyright@morrisonrothman.com
 
 I have a good faith belief that the use of the material and the matter complained of in this letter are not authorized by the copyright owner, any of their agents, or under the law. The information in this notification is correct and I swear under the penalty of perjury that I am authorized to act on behalf of the owners of the exclusive rights. This includes, specifically, the copyrights that we allege to be infringed upon.
