@@ -110,3 +110,67 @@ https://lbry.tv/@friends:78/Friends.S01E01:3
 Contagion
 
 https://lbry.tv/Contagion.2011.1080p.BluRay.x264--YTS.AG-:0
+
+
+What was located as infringing content:
+--------------------------------------------------
+
+
+Mr. Pickles
+
+https://lbry.tv/@Mr_Pickles:b/v07:3
+
+
+Wonder Woman 1984
+
+https://lbry.tv/@carlosantonio:5/Ww84-1:f
+
+
+Birds of Prey
+
+https://lbry.tv/@Revolutionary_Movies:f/Birds-of-Prey:3
+
+
+Rick and Morty
+
+https://lbry.tv/@NETPLAY:b/Rick_y_Morty2x1:8
+
+https://lbry.tv/@nay:2/rym7x4:6
+
+
+The God of High School
+
+https://lbry.tv/@Otaku:c/The-God-of-High-School-08:a
+
+
+
+Adventure Time
+
+https://lbry.tv/@HoraDeAventuraHD:8/HoraDeAventura01x03:e
+
+
+Batman: Soul Of The Dragon
+
+https://lbry.tv/@Angeldark:e/Batman-Soul-of-the-Dragon-Film-Complet-en-Streaming-HD:7
+
+
+Ben-Hur
+
+https://lbry.tv/@El_Nuevo_Mensajero:a/ben-hur2:9
+
+
+Mr. Pickles
+
+https://lbry.tv/@Mr_Pickles:b/6413e88cbbdae46010122f478a2c7bd0:7
+
+
+Primal
+
+https://lbry.tv/@Sporseries:b/PRIMAL-E7-Plague-of-Madness:2
+
+https://lbry.tv/@Sporseries:b/PRIMAL-E6-Scent-of-Prey:4
+
+
+Witches
+
+https://lbry.tv/@Nahin:d/22mes_las-brujas_185610:2
