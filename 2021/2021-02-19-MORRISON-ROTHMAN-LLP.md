@@ -6,34 +6,34 @@ The infringing works, which appear on the website "lbry.tv", are copies or are s
 
 Please refer to the following list of the URLs whereon the infringing works can be found:
 
-https://lbry.tv/Jessica-Nigri-Bath-Boobs:c
-https://lbry.tv/Jessica-Nigri-Bewbs:8
-https://lbry.tv/Jessica-Nigri-Rudolf-Boobs:e
-https://lbry.tv/Jessica-Nigri-Santa-Helper-Bewbs:2
-https://lbry.tv/Jessica-Nigri-Bewbs-Jiggle:a
-https://lbry.tv/Jessica-Nigri-Red-Lingerie-Spread:4
-https://lbry.tv/Jessica-Nigri-Blowing-Kisses:6
-https://lbry.tv/Jessica-Nigri-Bum-Gap:1
-https://lbry.tv/Jessica-Nigri-Looking-Sexy:e
-https://lbry.tv/Jessica-Nigri-Santas-Helper-Fur:8
-https://lbry.tv/Jessica-Nigri-Onlyfans-Santa-Ass:a
-https://lbry.tv/Jessica-Nigri-Lingerie:1
-https://lbry.tv/Jessica-Nigri-Onlyfans-Bewbs:8
-https://lbry.tv/Jessica-Nigri-Bath-Bum:1
-https://lbry.tv/Jessica-Nigri-Pink-Bikini:c
-https://lbry.tv/Jessica-Nigri-Blue-Stripe-Bikini:0
-https://lbry.tv/Jessica-Nigri-Bikini-Ass:d
-https://lbry.tv/jessicanigrivirginkillersweater:3
-https://lbry.tv/@PackForAll:e/sets-2018-j3ss1c-n1gr1-part-1:8
-https://lbry.tv/yellow-bikini-jessica-nigri:d
-https://lbry.tv/Jessica-Nigri-Hoodie:f
-https://lbry.tv/Jessica-Nigri-Bikini-Shake:e
-https://lbry.tv/Jessica-Nigri-Pink-Bikini:c
-https://lbry.tv/Jessica-Nigri-Blue-Stripe-Bikini:0
-https://lbry.tv/Jessica-Nigri-Rudolf-Boobs:e
-https://lbry.tv/yellow-bikini-jessica-nigri:d
-https://lbry.tv/Jessica-Nigri-Bath-Boobs:c
-https://lbry.tv/Jessica-Nigri-Red-Tie-Stockings:4
+- https://lbry.tv/Jessica-Nigri-Bath-Boobs:c
+- https://lbry.tv/Jessica-Nigri-Bewbs:8
+- https://lbry.tv/Jessica-Nigri-Rudolf-Boobs:e
+- https://lbry.tv/Jessica-Nigri-Santa-Helper-Bewbs:2
+- https://lbry.tv/Jessica-Nigri-Bewbs-Jiggle:a
+- https://lbry.tv/Jessica-Nigri-Red-Lingerie-Spread:4
+- https://lbry.tv/Jessica-Nigri-Blowing-Kisses:6
+- https://lbry.tv/Jessica-Nigri-Bum-Gap:1
+- https://lbry.tv/Jessica-Nigri-Looking-Sexy:e
+- https://lbry.tv/Jessica-Nigri-Santas-Helper-Fur:8
+- https://lbry.tv/Jessica-Nigri-Onlyfans-Santa-Ass:a
+- https://lbry.tv/Jessica-Nigri-Lingerie:1
+- https://lbry.tv/Jessica-Nigri-Onlyfans-Bewbs:8
+- https://lbry.tv/Jessica-Nigri-Bath-Bum:1
+- https://lbry.tv/Jessica-Nigri-Pink-Bikini:c
+- https://lbry.tv/Jessica-Nigri-Blue-Stripe-Bikini:0
+- https://lbry.tv/Jessica-Nigri-Bikini-Ass:d
+- https://lbry.tv/jessicanigrivirginkillersweater:3
+- https://lbry.tv/@PackForAll:e/sets-2018-j3ss1c-n1gr1-part-1:8
+- https://lbry.tv/yellow-bikini-jessica-nigri:d
+- https://lbry.tv/Jessica-Nigri-Hoodie:f
+- https://lbry.tv/Jessica-Nigri-Bikini-Shake:e
+- https://lbry.tv/Jessica-Nigri-Pink-Bikini:c
+- https://lbry.tv/Jessica-Nigri-Blue-Stripe-Bikini:0
+- https://lbry.tv/Jessica-Nigri-Rudolf-Boobs:e
+- https://lbry.tv/yellow-bikini-jessica-nigri:d
+- https://lbry.tv/Jessica-Nigri-Bath-Boobs:c
+- https://lbry.tv/Jessica-Nigri-Red-Tie-Stockings:4
 
 ﻿All correspondence regarding this matter, on behalf of the copyright owners, should be directed to our offices as follows:
 
