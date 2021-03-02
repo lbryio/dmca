@@ -561,3 +561,4 @@ Item/Material:
  - https://lbry.tv/@QuantumRhinoMovies:a/THRIVE-II--This-Is-What-It-Takes:4
  - http://lbry.tv/@Filmes:97/007-Skyfall:7
  - http://lbry.tv/@AwakenMe:a/Thrive-II:4
+ - https://lbry.tv/@peliculasydocumentales:9/TRUMP-CARD-2020:0
