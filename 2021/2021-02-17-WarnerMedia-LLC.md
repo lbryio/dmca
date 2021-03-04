@@ -298,5 +298,8 @@ ________________________________________________________________________________
 - https://lbry.tv/@TierraLibre:e/gremlins-84:b
 - https://lbry.tv/@axljavierff1:f/harry-potter-y-la-piedra-filosofal:f
 - https://lbry.tv/@CineG:a/Jonah-He:5
-- 
+- https://lbry.tv/@Peliculas_que_me_encantaron:9/La_estafa_Bad_Education:8
+- https://lbry.tv/@QuantumRhinoMovies:a/Watch-Tenet:6
+- https://lbry.tv/@cineart:a/Tom-y-Jerry-lat:e
+- https://lbry.tv/@Otaku:c/The-God-of-High-School-06:2
 
