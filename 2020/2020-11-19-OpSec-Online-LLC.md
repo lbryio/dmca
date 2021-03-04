@@ -562,3 +562,4 @@ Item/Material:
  - http://lbry.tv/@Filmes:97/007-Skyfall:7
  - http://lbry.tv/@AwakenMe:a/Thrive-II:4
  - https://lbry.tv/@peliculasydocumentales:9/TRUMP-CARD-2020:0
+ - https://lbry.tv/@oddyseus604:7/Let-Them-Talk:8
