@@ -302,4 +302,9 @@ ________________________________________________________________________________
 - https://lbry.tv/@QuantumRhinoMovies:a/Watch-Tenet:6
 - https://lbry.tv/@cineart:a/Tom-y-Jerry-lat:e
 - https://lbry.tv/@Otaku:c/The-God-of-High-School-06:2
+- https://lbry.tv/@eltioloco:1/Viernes-13-1:0
+- https://lbry.tv/@JugadorFantasma:7/La-piedra-filosofal:2
+- https://lbry.tv/@eltioloco:1/Viernes-13-1:0
+- https://lbry.tv/@nuke:b/vpervendetta2005:1st_place_medal
+- 
 
