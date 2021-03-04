@@ -306,5 +306,7 @@ ________________________________________________________________________________
 - https://lbry.tv/@JugadorFantasma:7/La-piedra-filosofal:2
 - https://lbry.tv/@eltioloco:1/Viernes-13-1:0
 - https://lbry.tv/@nuke:b/vpervendetta2005:1st_place_medal
-- 
+- https://lbry.tv/@Quinteiro:e/The_Animatrix_4_Anbient:e
+- https://lbry.tv/@Quinteiro:e/The_Animatrix_5_Anbient:b
+- https://lbry.tv/@ec2:5/13-Fantasmas:c
 
