@@ -309,4 +309,6 @@ ________________________________________________________________________________
 - https://lbry.tv/@Quinteiro:e/The_Animatrix_4_Anbient:e
 - https://lbry.tv/@Quinteiro:e/The_Animatrix_5_Anbient:b
 - https://lbry.tv/@ec2:5/13-Fantasmas:c
+-  https://lbry.tv/@Peliculas_DC:1/1-Justice-League-The-Flashpoint-Paradox-1:2
+-   https://lbry.tv/@PeliculasHDGratis:6/Expediente-Warren-The-Conjuring:2 
 
