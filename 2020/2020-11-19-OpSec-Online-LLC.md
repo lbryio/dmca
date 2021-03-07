@@ -563,3 +563,7 @@ Item/Material:
  - http://lbry.tv/@AwakenMe:a/Thrive-II:4
  - https://lbry.tv/@peliculasydocumentales:9/TRUMP-CARD-2020:0
  - https://lbry.tv/@oddyseus604:7/Let-Them-Talk:8
+ - http://lbry.tv/@QuantumRhinoMovies:a/Midsommar-(2019):a
+ - http://lbry.tv/@Terminator:b/The.Mauritanian:a 
+ - http://lbry.tv/@Vikings:89/Vikings.S01E01.Rites.of.Passage:5
+-  http://lbry.tv/@Vikings:89/Vikings.S01E02.Wrath.of.the.Northmen:b
