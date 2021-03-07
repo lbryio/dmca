@@ -55,7 +55,11 @@ The Legend of Korra
 https://lbry.tv/@IrohDW:7/A-Philosopher-Reacts-To-Legend-Of-Korra---Episodes-1-And-2:8
 
 
+_________________________________________________________________________________________________
 
+- https://lbry.tv/@QueerAsFolk:c/1x21-Corriendo-para-seguir-en-pie:0 
+-  https://lbry.tv/@QueerAsFolk:c/5x07-Esperanza-contra-esperanza:c 
+-  https://lbry.tv/@IrohDW:7/05-The-Lust-Triangle:3
 
 -----BEGIN PGP SIGNATURE-----
 Version: Cryptix OpenPGP 0.20050418
