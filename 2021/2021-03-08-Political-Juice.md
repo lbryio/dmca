@@ -2,13 +2,19 @@ My name is Henry Kokkeler and I am the authorized representative of Political Ju
 
 A copy of my original video, which is being infringed upon, can be found here:
 
-https://youtu.be/VAX0EeNl528
+- https://youtu.be/VAX0EeNl528
+- https://youtu.be/FuP_xdkHQ0k
+- https://youtu.be/qXGArOyv7rE
 
 The portion under consideration begins at the timestamp: (2:50:20)
 
 The unauthorized and infringing copy can be found here:
 
-https://odysee.com/Thoughts-on-the-Current-State-of-America:b
+- https://odysee.com/Thoughts-on-the-Current-State-of-America:b
+- https://odysee.com/The-MYTH-of-Trickle-Down-Economics---Copy:f
+- https://odysee.com/@Pizzagate:d/What-is-Pizzagate:1
+- https://odysee.com/Crazier-For-Kavanaugh---Copy:7
+- https://odysee.com/What-is-Pizzagate...---Copy:a 
 
 It's identifier number is:
 
