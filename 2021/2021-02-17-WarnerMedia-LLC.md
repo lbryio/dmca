@@ -311,4 +311,4 @@ ________________________________________________________________________________
 - https://lbry.tv/@ec2:5/13-Fantasmas:c
 -  https://lbry.tv/@Peliculas_DC:1/1-Justice-League-The-Flashpoint-Paradox-1:2
 -   https://lbry.tv/@PeliculasHDGratis:6/Expediente-Warren-The-Conjuring:2 
-
+- https://lbry.tv/@Tataku:8/gate-jieitai-kanochi-nite-kaku-tatakaeri-02:6
