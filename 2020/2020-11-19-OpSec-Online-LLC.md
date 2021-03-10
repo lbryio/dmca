@@ -567,3 +567,5 @@ Item/Material:
  - http://lbry.tv/@Terminator:b/The.Mauritanian:a 
  - http://lbry.tv/@Vikings:89/Vikings.S01E01.Rites.of.Passage:5
 -  http://lbry.tv/@Vikings:89/Vikings.S01E02.Wrath.of.the.Northmen:b
+-  https://lbry.tv/@ExoPortail:3/thrive_2_vostfr_dans_ce_thrive_vous_verrez_un_appareil_a_energie_hd:d
+-  https://lbry.tv/@QRMovies:0/Midsommar-(2019):a
