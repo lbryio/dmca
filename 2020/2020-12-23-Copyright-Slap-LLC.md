@@ -11,14 +11,13 @@ One by One, a Feature Film, published in 2013.
 https://onebyonethemovie.wixsite.com/website
 
 3. The infringing material is located at the following URLs:
-https://lbry.tv/@Health_and_Freedom:1/One-By-One-2014:2
- https://lbry.tv/@NewNormalNot:2/ONE-BY-ONE-2014-(MOVIE):7
-  https://lbry.tv/@renegade:2/One-by-One-Rik-Mayall:d
-   https://lbry.tv/@WakeUpAndSmellTheBullShit:f/One-by-One-Rik-Mayall:c
-    https://lbry.tv/@DKJ:1/VTS_01_2:e
-     https://lbry.tv/@Weckruf:b/One-by-One-Rik-Mayall:f
-     https://lbry.tv/@NewNormalNot:2/ONE-BY-ONE-2014-(MOVIE):7
-     https://lbry.tv/@TheTruthWillSetHumanityFree:1/nesara-gesara-donald-trump-too-late-for:5
+- https://lbry.tv/@Health_and_Freedom:1/One-By-One-2014:2
+- https://lbry.tv/@NewNormalNot:2/ONE-BY-ONE-2014-(MOVIE):7
+- https://lbry.tv/@renegade:2/One-by-One-Rik-Mayall:d
+- https://lbry.tv/@WakeUpAndSmellTheBullShit:f/One-by-One-Rik-Mayall:c
+- https://lbry.tv/@DKJ:1/VTS_01_2:e
+- https://lbry.tv/@TheTruthWillSetHumanityFree:1/nesara-gesara-donald-trump-too-late-for:5
+- https://odysee.com/@WuKong_:a/One-by-One--2014--Full-Movie:a
 
 4. The copyright holder's contact information is:
 Name: Diane Jessie Miller
