@@ -569,3 +569,6 @@ Item/Material:
 -  http://lbry.tv/@Vikings:89/Vikings.S01E02.Wrath.of.the.Northmen:b
 -  https://lbry.tv/@ExoPortail:3/thrive_2_vostfr_dans_ce_thrive_vous_verrez_un_appareil_a_energie_hd:d
 -  https://lbry.tv/@QRMovies:0/Midsommar-(2019):a
+-  http://lbry.tv/@FlowerPower:b/THRIVE-II-This-Is-What-It-Takes:d
+-  http://lbry.tv/@Kik26:e/Thrive-II---This-Is-What-It-Takes:f
+-   https://lbry.tv/@razorfx9:2/yellowstones01e01:f
