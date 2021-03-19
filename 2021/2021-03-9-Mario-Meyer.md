@@ -15,3 +15,5 @@ Thank you.
 
 Best regards,
 Mario Meyer
+
+PS: LBRY Inc has received the court orders in PDF submitted by the user.
