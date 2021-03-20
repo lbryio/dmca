@@ -66,6 +66,8 @@ ________________________________________________________________________________
 - https://lbry.tv/@Hit_Parade:a/Hurt---Johnny-Cash:b
 - https://lbry.tv/@1000WaysToDie:0/S1E7DeathBeNotStupid:2 
 - https://lbry.tv/@RPDRSEASON12:f/ep1p2:9
+-  https://lbry.tv/@Billions:4/Billions-S01E09-WheretheFuckisDonnie720pHDTVmp4:c
+-  https://lbry.tv/@Billions:4/Billions-S01E10-QualityofLife720pHDTVmp4:1
 
 -----BEGIN PGP SIGNATURE-----
 Version: Cryptix OpenPGP 0.20050418
