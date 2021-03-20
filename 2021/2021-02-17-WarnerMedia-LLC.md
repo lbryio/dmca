@@ -326,4 +326,10 @@ ________________________________________________________________________________
 - https://lbry.tv/@FourthIndustrialRevolution:1/the-matrix:5 
 - https://lbry.tv/@zerkalo:e/The_Shawshank_Redemption_1994:2 
 - https://lbry.tv/@EnUnBosqueDeLaChina:4/master-of-shadowless-kick-wong-kei-ying:4 
--  https://lbry.tv/@LATINOMOVIEZ:e/Dunkirk:3 
+- https://lbry.tv/@LATINOMOVIEZ:e/Dunkirk:3 
+- https://lbry.tv/@kennytamer:7/prey-of-bird:3
+- https://lbry.tv/@warlord:3/la-chaqueta-metalica-1987-kubrick:6
+- https://lbry.tv/@LouiseMichel:f/Autant-en-emporte-le-vent:7
+- https://lbry.tv/@DcComicsTV:8/the-flash-1x06:f
+- https://lbry.tv/@Luffyiscool:e/luffy-reacts-young-justice-s1e08:6
+- 
