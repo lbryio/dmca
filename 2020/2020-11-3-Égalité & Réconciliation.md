@@ -1,9 +1,7 @@
 I'm a legal representative of the french association:
 
 Égalité & Réconciliation
-3 rue du Fort de la Briche
-93200 Saint Denis
-France
+<personal information hiddedn>
 
 https://lbry.tv/SAPTR--18:6
 
@@ -18,3 +16,5 @@ PS: Can you please use the rights holder name Égalité & Réconciliation instea
 With Regards,
 
 Secrétaire national d'Égalité & Réconciliation
+
+lbry://@ReVibe#3/Le-Grand-Reset,-ou-le-grand-m\u00e9nage-_--3-Great-Reset---\u00c9cologie.mp4#0
