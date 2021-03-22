@@ -32,8 +32,9 @@ The Walking Dead
 - https://lbry.tv/@NETPLAY:b/The-Walking-Dead-t10-Capitulo-8:e
 - https://lbry.tv/@NETPLAY:b/The-Walking-Dead-t10-Capitulo-7:f
 - https://lbry.tv/@NETPLAY:b/The-Walking-Dead-t10-Capitulo-11:f
--  https://lbry.tv/@av0222315431400:c/Ver-The-Walking-Dead-10x1-Online-Gratis-Completas-HD:1 
+- https://lbry.tv/@av0222315431400:c/Ver-The-Walking-Dead-10x1-Online-Gratis-Completas-HD:1 
 - https://lbry.tv/@NETPLAY:b/The-Walking-Dead-t10-Capitulo-5:9
 - https://lbry.tv/@NETPLAY:b/The-Walking-Dead-t10-Capitulo-9:0
 - https://lbry.tv/@NETPLAY:b/The-Walking-Dead-t10-Capitulo-4-Chicos:8
-- 
+- https://lbry.tv/@LeBlogDeLetrange:b/Fear-the-Walking-Dead-S06E05-FRENCH:5 
+- https://lbry.tv/@LeBlogDeLetrange:b/The_Walking_Dead_World_Beyond_S01E05_FRENCH:3
