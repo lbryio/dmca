@@ -332,4 +332,8 @@ ________________________________________________________________________________
 - https://lbry.tv/@LouiseMichel:f/Autant-en-emporte-le-vent:7
 - https://lbry.tv/@DcComicsTV:8/the-flash-1x06:f
 - https://lbry.tv/@Luffyiscool:e/luffy-reacts-young-justice-s1e08:6
+- https://lbry.tv/@AniStream:1/shokugeki-no-souma-episode-01-eng-sub:5
+- https://lbry.tv/@CartoonMania:0/101-Uses-for-Cow-and-Chicken:1
+- https://lbry.tv/@HoraDeAventuraHD:8/Hora-De-Aventura-HD---01x17---Descongelando-una-Boda:6
+- https://lbry.tv/@JmVen:38/Festival-de-la-Canci%C3%B3n-de-Eurovisi%C3%B3n-La-historia-de-Fire-Saga-(2020):a
 - 
