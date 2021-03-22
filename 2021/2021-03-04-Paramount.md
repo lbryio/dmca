@@ -266,6 +266,16 @@ https://cdn.lbryplayer.xyz/api/v4/streams/free/Sin-City---La-Ciudad-del-Pecado/8
 - https://lbry.tv/@peliculasdelsiglopasado:d/Grease:4 
 - https://cdn.lbryplayer.xyz/api/v4/streams/free/Grease/4b7ac4dcbe8492f42b8e9e592262b9c944278c8c/0a3e7c
 
+- https://lbry.tv/@CinemaObscura:c/The-War-Of-The-Worlds-1953:5
+- https://cdn.lbryplayer.xyz/api/v4/streams/free/The-War-Of-The-Worlds-1953/59584e7f97823efe23b6b792aaf0be5a87a6c757/ed99d4
+
+https://lbry.tv/@JohnnyDong:0/The-Godfather--Part3--1990--Full-HD:6
+ https://lbry.tv/@ankit9807100059:a/The-Spongebob-Movie-Sponge-on-The-Run-2020-Dual-Audio-Hindi-Cineflex-Movies:0
+ 
+ 
+- https://lbry.tv/@VobeTube:2/Sonic-the-Hedgehog-Movie:f
+- https://cdn.lbryplayer.xyz/api/v4/streams/free/Sonic-the-Hedgehog-Movie/f6d95e05ffe4764873897146c5a0da499ca04084/d71c12
+
 -----BEGIN PGP SIGNATURE-----
 Version: Cryptix OpenPGP 0.20050418
 
