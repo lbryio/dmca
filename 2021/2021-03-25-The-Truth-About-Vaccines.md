@@ -137,6 +137,17 @@ https://odysee.com/@OfficialVaxFactsLack:a/TTAV-2020-Bonus-Transcripts---Expert-
 - https://odysee.com/@plandemic:26/The-Truth-About-Vaccines-part-8-full-documentary:3
 - https://odysee.com/@plandemic:26/The-Truth-About-Vaccines-part-9-full-documentary:5
 - https://odysee.com/@plandemic:26/The-Truth-About-Vaccines-(TTAV2020)-Vaccine-Roundtable-Part-1:c 
+- https://odysee.com/@plandemic:26/The-Truth-About-Vaccines-(TTAV2020)-Vaccine-Roundtable-Part-2:1 Title of the infringing video: THE TRUTH ABOUT VACCINES (TTAV2020) - Vaccine Roundtable - Part 2These additional videos must also go down immediately: 
+- https://odysee.com/@plandemic:26/THE-TRUTH-ABOUT-VACCINES---Part-1-(Full-Documentary):a
+- https://odysee.com/@plandemic:26/THE-TRUTH-ABOUT-VACCINES---Part-2-(Full-Documentary):1
+- https://odysee.com/@plandemic:26/The-Truth-About-Vaccines-part-3-full-documentary:d
+- https://odysee.com/@plandemic:26/The-Truth-About-Vaccines-part-4-full-documentary:0
+- https://odysee.com/@plandemic:26/The-Truth-About-Vaccines-part-5-full-documentary:1
+- https://odysee.com/@plandemic:26/The-Truth-About-Vaccines-part-6-full-documentary:2
+- https://odysee.com/@plandemic:26/The-Truth-About-Vaccines-part-7-full-documentary:6
+- https://odysee.com/@plandemic:26/The-Truth-About-Vaccines-part-8-full-documentary:3
+- https://odysee.com/@plandemic:26/The-Truth-About-Vaccines-part-9-full-documentary:5
+- https://odysee.com/@plandemic:26/The-Truth-About-Vaccines-(TTAV2020)-Vaccine-Roundtable-Part-1:c
 This user (OfficialVaxFactsLack) does not have permission to use any or all parts (audio, stills, video, etc.) of our docu-series, The Truth About Vaccines, or any other docu-series owned by The Truth About Cancer/Vaccines. This user has lifted the entirety of the video and audio without permission.
 
 Our original work can be found primarily on YouTube (https://youtu.be/cHWeJ0f_o3A). The videos are currently private and not available for public viewing. However, we do have raw video files if needed to prove ownership. Otherwise, please let me know what is the best way to provide proof of ownership.
