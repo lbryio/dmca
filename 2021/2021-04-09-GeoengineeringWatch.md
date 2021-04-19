@@ -44,6 +44,10 @@ Pirated videos:
 11. https://lbry.tv/@TheBigVirusHoax:2/The-Dimming,-Full-Length-Climate-Engineering-Documentary-(-Geoengineering-Watch-)-2:9
 12. https://lbry.tv/@EyesToSee:f/ablaze-numerous-quail:6
 13. https://lbry.tv/@Climate_Change:a/The_Dimming:b
+14. https://lbry.tv/@zen:4/thedimming:6
+15. https://lbry.tv/@PatriotsForTruth:2/theDimming:7
+16. https://lbry.tv/@SergeantMajor'sTrutherInfo:2/TheDimming:6
+
 
 
 
