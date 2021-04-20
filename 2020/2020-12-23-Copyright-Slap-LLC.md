@@ -18,6 +18,7 @@ https://onebyonethemovie.wixsite.com/website
 - https://lbry.tv/@DKJ:1/VTS_01_2:e
 - https://lbry.tv/@TheTruthWillSetHumanityFree:1/nesara-gesara-donald-trump-too-late-for:5
 - https://odysee.com/@WuKong_:a/One-by-One--2014--Full-Movie:a
+-  https://lbry.tv/@natural-news:c/One-By-One:c
 
 4. The copyright holder's contact information is:
 Name: Diane Jessie Miller
