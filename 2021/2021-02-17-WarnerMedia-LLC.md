@@ -336,4 +336,5 @@ ________________________________________________________________________________
 - https://lbry.tv/@CartoonMania:0/101-Uses-for-Cow-and-Chicken:1
 - https://lbry.tv/@HoraDeAventuraHD:8/Hora-De-Aventura-HD---01x17---Descongelando-una-Boda:6
 - https://lbry.tv/@JmVen:38/Festival-de-la-Canci%C3%B3n-de-Eurovisi%C3%B3n-La-historia-de-Fire-Saga-(2020):a
-- 
+- https://lbry.tv/@RickAndMorty:b/RickandMortyRickOutsmartstheDevil:7 
+- https://lbry.tv/@TheArtOfFilms:3/Opera-Siege-Tenet:b 
