@@ -16,7 +16,13 @@ Copyright infringing material or activity found at the following URLs:
 [http://lbry.tv/@alltv:c/TotalmenteDemais2:a](http://lbry.tv/@alltv:c/TotalmenteDemais2:a)  
 [http://lbry.tv/@alltv:c/well-made-frightened-jaguar:4](http://lbry.tv/@alltv:c/well-made-frightened-jaguar:4)  
 [http://lbry.tv/@alltv:c/wretched-old-gerbil:3](http://lbry.tv/@alltv:c/wretched-old-gerbil:3)  
-[http://lbry.tv/@Bbb20:1/Big-Brother-Brasil-on-Instagram_-__RETAFINAL----_(MP4)](http://lbry.tv/@Bbb20:1/Big-Brother-Brasil-on-Instagram_-__RETAFINAL----_(MP4)):d  
+[http://lbry.tv/@Bbb20:1/Big-Brother-Brasil-on-Instagram_-__RETAFINAL----_(MP4)](http://lbry.tv/@Bbb20:1/Big-Brother-Brasil-on-Instagram_-__RETAFINAL----_(MP4)):d 
+- http://lbry.tv/@vee:3/Heavens.Gate.The.Cult.of.Cults.S01E01.720p.HMAX.WEBRip.x264-GalaxyTV:e
+- http://lbry.tv/@vee:3/Heavens.Gate.The.Cult.of.Cults.S01E02.720p.HMAX.WEBRip.x264-GalaxyTV:a
+- http://lbry.tv/@vee:3/Heavens.Gate.The.Cult.of.Cults.S01E03.720p.HMAX.WEBRip.x264-GalaxyTV:1
+- http://lbry.tv/@vee:3/Heavens.Gate.The.Cult.of.Cults.S01E04.720p.HMAX.WEBRip.x264-GalaxyTV:5
+- http://lbry.tv/@Vlaamse-TV:e/blls02e04:c
+-  http://lbry.tv/@CineG:d/Fighter-(Biopic--Drame):2 
   
 We wish to make you aware that your present, unauthorized display of such A/V content is an infringement of Globo's exclusive intellectual property rights under national and international copyright laws. On behalf of Globo, I hereby demand that you immediately cease all such infringements on any and all web sites (and elsewhere) and confirm to OpSec Online LLC via return email, that you have done so. Your failure to comply with this demand will expose to you civil and criminal liability. Govern yourself accordingly.  
   
