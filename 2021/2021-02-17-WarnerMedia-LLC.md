@@ -338,3 +338,10 @@ ________________________________________________________________________________
 - https://lbry.tv/@JmVen:38/Festival-de-la-Canci%C3%B3n-de-Eurovisi%C3%B3n-La-historia-de-Fire-Saga-(2020):a
 - https://lbry.tv/@RickAndMorty:b/RickandMortyRickOutsmartstheDevil:7 
 - https://lbry.tv/@TheArtOfFilms:3/Opera-Siege-Tenet:b 
+- https://lbry.tv/@Sin1ster:d/goh7:8
+- https://lbry.tv/@Sin1ster:d/goh11:1
+- https://lbry.tv/@Sin1ster:d/goh12:d
+- https://lbry.tv/@Sin1ster:d/goh2:1
+- https://lbry.tv/@Sin1ster:d/goh6:c
+- https://lbry.tv/@Sin1ster:d/goh10:4
+- https://lbry.tv/@Sin1ster:d/goh4:4
