@@ -9,7 +9,11 @@ We have noticed that your website is displaying, promoting and/or offering audio
 TOTALMENTE DEMAIS (2020)  
 BIG BROTHER BRASIL (2020)  
   
-Copyright infringing material or activity found at the following URLs:  
+Copyright infringing material or activity found at the following URLs:
+- http://lbry.tv/@Movies:d41/Skyfall-2012-Bluray-10Bit-1080P-Dd5.1-H265-D3g-1:0
+- http://lbry.tv/@Appelme:1/Wind-River-(2017)-French-:2
+- http://lbry.tv/@CineCl%C3%A1sico:1/jamesbond:f
+
 [http://lbry.tv/@alltv:c/breakable-hanging-eel:3](http://lbry.tv/@alltv:c/breakable-hanging-eel:3)  
 [http://lbry.tv/@alltv:c/jagged-verdant-scorpion:e](http://lbry.tv/@alltv:c/jagged-verdant-scorpion:e)  
 [http://lbry.tv/@alltv:c/TotalmenteDemais:f](http://lbry.tv/@alltv:c/TotalmenteDemais:f)  
