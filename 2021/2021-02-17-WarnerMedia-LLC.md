@@ -345,3 +345,7 @@ ________________________________________________________________________________
 - https://lbry.tv/@Sin1ster:d/goh6:c
 - https://lbry.tv/@Sin1ster:d/goh10:4
 - https://lbry.tv/@Sin1ster:d/goh4:4
+- https://lbry.tv/@CineEnCasa:d/The-Flashpoint:9 
+- https://lbry.tv/@Trouluk:e/HarryPotter4fr:d
+- https://lbry.tv/@Cinema:3db/escuadron-suicida:1
+- https://lbry.tv/@filmesdublado:b/afreira_filmesdublado_lbry:f
