@@ -658,5 +658,8 @@ Item/Material:
 - http://lbry.tv/@Patriotfraf:a/Q-Into-the-storm-_-Ep1-(1080p-Vostfr):c
 - http://lbry.tv/@Steph:2/hEXGb.caa.1:8
 - http://lbry.tv/@PilluleRouge:1/Qanon---Into-the-storm---1---2021---VOSTFR:0
--  http://lbry.tv/@UrbeOscura:8/1_5179656788617724393:4
+- http://lbry.tv/@UrbeOscura:8/1_5179656788617724393:4
+- http://lbry.tv/@CienciaIntegrada:6/Thrive-II---This-Is-What-It-Takes-(Spanish-Subtitled):f
+- http://lbry.tv/@QlobalChangeItalia:2/Thrive-II---Questo-%C3%88-Ci%C3%B2-Che-Serve:d
+
 
