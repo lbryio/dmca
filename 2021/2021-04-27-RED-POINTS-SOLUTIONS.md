@@ -13,9 +13,9 @@ Phone: +34 934 189 433
 
 2) CREHANA has confirmed to us that they have a good faith belief that the following content is infringing upon their valid intellectual property rights:
 
-https://lbry.tv/@TutorialesEspa%C3%B1ol:2/006-BREAK-2_-Doblaje_-Inicios-y-trayectoria:a
-https://lbry.tv/@TutorialesEspa%C3%B1ol:2/003-El-sistema-auditivo-humano:8
-https://lbry.tv/@TutorialesEspa%C3%B1ol:2/004-Somos-Primates:4
+- https://lbry.tv/@TutorialesEspa%C3%B1ol:2/006-BREAK-2_-Doblaje_-Inicios-y-trayectoria:a
+- https://lbry.tv/@TutorialesEspa%C3%B1ol:2/003-El-sistema-auditivo-humano:8
+- https://lbry.tv/@TutorialesEspa%C3%B1ol:2/004-Somos-Primates:4
 
 
 3) Our client believes that the content above is infringing upon their copyrighted work(s), as listed below:
