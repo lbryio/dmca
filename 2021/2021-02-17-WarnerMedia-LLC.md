@@ -23,7 +23,7 @@ agent@warnerbros.copyright-notice.com
 What was located as infringing content:
 
 --------------------------------------------------
-
+- https://lbry.tv/@Anime:42/Mr-Pickles-T01XE01:8
 - https://lbry.tv/Contagion.2011.1080p.BluRay.x264--YTS.AG-:0
 - https://lbry.tv/Contagion.2011.1080p.BluRay.H264.AAC-RARBG:9
 - https://lbry.tv/Contagion.2011.720p:5
