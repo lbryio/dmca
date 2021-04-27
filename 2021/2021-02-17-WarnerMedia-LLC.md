@@ -349,3 +349,5 @@ ________________________________________________________________________________
 - https://lbry.tv/@Trouluk:e/HarryPotter4fr:d
 - https://lbry.tv/@Cinema:3db/escuadron-suicida:1
 - https://lbry.tv/@filmesdublado:b/afreira_filmesdublado_lbry:f
+- https://lbry.tv/@Alpha77:3/963c90:b
+- https://lbry.tv/@Hentai:6/4_5953988857501321706:2
