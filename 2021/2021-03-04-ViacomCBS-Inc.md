@@ -68,6 +68,8 @@ ________________________________________________________________________________
 - https://lbry.tv/@RPDRSEASON12:f/ep1p2:9
 -  https://lbry.tv/@Billions:4/Billions-S01E09-WheretheFuckisDonnie720pHDTVmp4:c
 -  https://lbry.tv/@Billions:4/Billions-S01E10-QualityofLife720pHDTVmp4:1
+- https://lbry.tv/@TheCine:0/Todo-Mundo-Odeia-o-Chris-1x01-Piloto-5_5-HD:d
+- https://lbry.tv/@TheCine:0/Todo-Mundo-Odeia-o-Chris-1x01-Piloto-3_5-HD:1
 
 -----BEGIN PGP SIGNATURE-----
 Version: Cryptix OpenPGP 0.20050418
