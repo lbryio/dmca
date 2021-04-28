@@ -13,6 +13,7 @@ Copyright infringing material or activity found at the following URLs:
 - http://lbry.tv/@Movies:d41/Skyfall-2012-Bluray-10Bit-1080P-Dd5.1-H265-D3g-1:0
 - http://lbry.tv/@Appelme:1/Wind-River-(2017)-French-:2
 - http://lbry.tv/@CineCl%C3%A1sico:1/jamesbond:f
+- http://lbry.tv/@CONSCIENCE-LIFE:4/BUTCHERS:0
 
 [http://lbry.tv/@alltv:c/breakable-hanging-eel:3](http://lbry.tv/@alltv:c/breakable-hanging-eel:3)  
 [http://lbry.tv/@alltv:c/jagged-verdant-scorpion:e](http://lbry.tv/@alltv:c/jagged-verdant-scorpion:e)  
