@@ -23,6 +23,10 @@ agent@warnerbros.copyright-notice.com
 What was located as infringing content:
 
 --------------------------------------------------
+
+- https://lbry.tv/@UNIVERSO_CRISTIANO:7/ben-hur2:9
+- https://lbry.tv/@CarteleraExtrenos:c/MortalKombat2021Castellano:1
+- https://lbry.tv/@SeriesTV:0/the-last-ship-1x03:d
 - https://lbry.tv/@Anime:42/Mr-Pickles-T01XE01:8
 - https://lbry.tv/Contagion.2011.1080p.BluRay.x264--YTS.AG-:0
 - https://lbry.tv/Contagion.2011.1080p.BluRay.H264.AAC-RARBG:9
