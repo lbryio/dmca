@@ -351,3 +351,5 @@ ________________________________________________________________________________
 - https://lbry.tv/@filmesdublado:b/afreira_filmesdublado_lbry:f
 - https://lbry.tv/@Alpha77:3/963c90:b
 - https://lbry.tv/@Hentai:6/4_5953988857501321706:2
+- https://lbry.tv/@BehindTheMatrix:7/The-Animatrix---Kids-Story---They-know-you-know:7
+- https://lbry.tv/@netflixbangladesh:5/Mortal-Kombat-2021-1080p:1 
