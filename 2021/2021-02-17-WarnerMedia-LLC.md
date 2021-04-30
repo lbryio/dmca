@@ -24,6 +24,9 @@ What was located as infringing content:
 
 --------------------------------------------------
 
+- https://lbry.tv/@memetherapy:3/steven-seagal-in-hard-to-kill-in-40:f
+- https://lbry.tv/@anime:e8d/Escola_de_Treinamento_Setouchi_Keijo:0
+- https://lbry.tv/@ituoifilm:6/interstellar-parte2:9
 - https://lbry.tv/@UNIVERSO_CRISTIANO:7/ben-hur2:9
 - https://lbry.tv/@CarteleraExtrenos:c/MortalKombat2021Castellano:1
 - https://lbry.tv/@SeriesTV:0/the-last-ship-1x03:d
