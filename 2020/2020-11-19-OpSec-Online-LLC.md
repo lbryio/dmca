@@ -14,6 +14,8 @@ Copyright infringing material or activity found at the following URLs:
 - http://lbry.tv/@Appelme:1/Wind-River-(2017)-French-:2
 - http://lbry.tv/@CineCl%C3%A1sico:1/jamesbond:f
 - http://lbry.tv/@CONSCIENCE-LIFE:4/BUTCHERS:0
+- http://lbry.tv/@JEROME7131:b/meilleur-film-horreur-2020-film-complet-version-francaise:f
+- http://lbry.tv/@Personal_Movie_Collection:e/Limitless.2011.720p.BrRip.x264.YIFY:b
 
 [http://lbry.tv/@alltv:c/breakable-hanging-eel:3](http://lbry.tv/@alltv:c/breakable-hanging-eel:3)  
 [http://lbry.tv/@alltv:c/jagged-verdant-scorpion:e](http://lbry.tv/@alltv:c/jagged-verdant-scorpion:e)  
