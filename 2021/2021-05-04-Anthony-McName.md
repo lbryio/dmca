@@ -3,8 +3,8 @@ Hi,
 
 I am contacting you on behalf of the copyright owner of the video being infringed at:
 
-https://odysee.com/newjjjoe:2bc541ac3cfe40358ba1230c3575ff4cc01305b8
-https://odysee.com/prepod11:98677fc0a790552bc0654f31e5b0cd308e4ff932
+- https://odysee.com/newjjjoe:2bc541ac3cfe40358ba1230c3575ff4cc01305b8
+- https://odysee.com/prepod11:98677fc0a790552bc0654f31e5b0cd308e4ff932
 
 The video(s) being infringed are available exclusively at https://www.patreon.com/joebudden
 
