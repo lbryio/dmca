@@ -16,6 +16,9 @@ Copyright infringing material or activity found at the following URLs:
 - http://lbry.tv/@CONSCIENCE-LIFE:4/BUTCHERS:0
 - http://lbry.tv/@JEROME7131:b/meilleur-film-horreur-2020-film-complet-version-francaise:f
 - http://lbry.tv/@Personal_Movie_Collection:e/Limitless.2011.720p.BrRip.x264.YIFY:b
+- https://lbry.tv/@LilCryptita:4/yt1s.com---New-Rule-Crypto-Mania--Real-Time-with-Bill-Maher-HBO:9
+- https://lbry.tv/@GrkMv:d/theinvestigationgrkmd:3
+- https://lbry.tv/@PELICULAS_GENIALES_MX:2/THE_DISASTER_ARTIST:d
 
 [http://lbry.tv/@alltv:c/breakable-hanging-eel:3](http://lbry.tv/@alltv:c/breakable-hanging-eel:3)  
 [http://lbry.tv/@alltv:c/jagged-verdant-scorpion:e](http://lbry.tv/@alltv:c/jagged-verdant-scorpion:e)  
