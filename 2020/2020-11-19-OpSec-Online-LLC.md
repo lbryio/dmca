@@ -11,14 +11,24 @@ BIG BROTHER BRASIL (2020)
   
 Copyright infringing material or activity found at the following URLs:
 - http://lbry.tv/@Movies:d41/Skyfall-2012-Bluray-10Bit-1080P-Dd5.1-H265-D3g-1:0
+- https://lbry.tv/@Cinema.TV:3/%D0%97%D0%B0%D1%81%D1%82%D1%83%D0%BF%D0%BD%D0%B8%D0%BA--The-Marksman--2021:a
+- https://lbry.tv/The-Marksman-(Subtitulada-al-Espa%C3%B1ol):3
 - http://lbry.tv/@Appelme:1/Wind-River-(2017)-French-:2
+- http://lbry.tv/@CINECALIDAD:3/La-Abeja-Maya-Y-El-Huevo-Dorado-(2021)-FULL-HD-Espa%C3%B1ol-Latino:b
+- http://lbry.tv/@CINECALIDAD:3/Vic-El-Vikingo-Y-La-Espada-M%C3%A1gica-(2019)-FULL-HD-Espa%C3%B1ol-Latino:e
 - http://lbry.tv/@CineCl%C3%A1sico:1/jamesbond:f
 - http://lbry.tv/@CONSCIENCE-LIFE:4/BUTCHERS:0
+- http://lbry.tv/@MAGYARCSATORNA:2/24-THRIVE-II-2020-1r%C3%A9sz:c
+- http://lbry.tv/@MAGYARCSATORNA:2/25-THRIVE-II-2020-2r%C3%A9sz:7
 - http://lbry.tv/@JEROME7131:b/meilleur-film-horreur-2020-film-complet-version-francaise:f
 - http://lbry.tv/@Personal_Movie_Collection:e/Limitless.2011.720p.BrRip.x264.YIFY:b
 - https://lbry.tv/@LilCryptita:4/yt1s.com---New-Rule-Crypto-Mania--Real-Time-with-Bill-Maher-HBO:9
 - https://lbry.tv/@GrkMv:d/theinvestigationgrkmd:3
 - https://lbry.tv/@PELICULAS_GENIALES_MX:2/THE_DISASTER_ARTIST:d
+- https://lbry.tv/@MAGYARCSATORNA:2/THRIVE-II-2020-2r%C3%A9sz:a
+- https://lbry.tv/@MAGYARCSATORNA:2/THRIVE-II-2020-1r%C3%A9sz:9
+- https://lbry.tv/@Shum-Flix:5/The.Terminator.1984.1080p:6
+- https://lbry.tv/@Creed:d/LastWeekTonightCovidVaccineEdited:1
 
 [http://lbry.tv/@alltv:c/breakable-hanging-eel:3](http://lbry.tv/@alltv:c/breakable-hanging-eel:3)  
 [http://lbry.tv/@alltv:c/jagged-verdant-scorpion:e](http://lbry.tv/@alltv:c/jagged-verdant-scorpion:e)  
