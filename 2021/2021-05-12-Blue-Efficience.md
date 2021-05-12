@@ -44,9 +44,9 @@ Hereunder is provided the list of URLs giving access to the copyrighted
 work.
 Each of these URLs loads a web page that allows to launch the download of
 the copyrighted work.
-https://odysee.com/@QAmiral:9/Un-pays-qui-se-tient-sage-(2020):9
-https://odysee.com/@fuiwdwutm:b/pol:5
-https://odysee.com/Ma-vid%C3%A9o2:59c
+- https://odysee.com/@QAmiral:9/Un-pays-qui-se-tient-sage-(2020):9
+- https://odysee.com/@fuiwdwutm:b/pol:5
+- https://odysee.com/Ma-vid%C3%A9o2:59c
 
 
 
