@@ -25,9 +25,16 @@ What was located as infringing content:
 --------------------------------------------------
 
 - https://lbry.tv/@memetherapy:3/steven-seagal-in-hard-to-kill-in-40:f
+- https://lbry.tv/THRIVEIIESPA%C3%91OL:5
+- https://lbry.tv/@BlockchaineFilms:9/justiceleaguespanish:b
+- https://lbry.tv/@BlockchaineFilms:9/justiceleaguespanish:b
 - https://lbry.tv/@anime:e8d/Escola_de_Treinamento_Setouchi_Keijo:0
 - https://lbry.tv/@ituoifilm:6/interstellar-parte2:9
 - https://lbry.tv/@UNIVERSO_CRISTIANO:7/ben-hur2:9
+- https://lbry.tv/@series:b9/Rick-y-Morty-1x02-Perro-cortacesped1080p:e
+- https://lbry.tv/@damontanha:5/temp1ep3:3
+- https://lbry.tv/@damontanha:5/ep2temp1:9
+- https://lbry.tv/@Zonace:4/Rick_and_Morty__Temp_1__1___Piloto__816028:6
 - https://lbry.tv/@CarteleraExtrenos:c/MortalKombat2021Castellano:1
 - https://lbry.tv/@SeriesTV:0/the-last-ship-1x03:d
 - https://lbry.tv/@Anime:42/Mr-Pickles-T01XE01:8
