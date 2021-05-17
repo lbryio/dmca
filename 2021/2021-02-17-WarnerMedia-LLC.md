@@ -26,6 +26,7 @@ What was located as infringing content:
 
 - https://lbry.tv/@memetherapy:3/steven-seagal-in-hard-to-kill-in-40:f
 - https://lbry.tv/THRIVEIIESPA%C3%91OL:5
+- https://lbry.tv/@Projetospeedart:0/tonikaku-kawaii-epis-dio-2-parte-05:4
 - https://lbry.tv/@BlockchaineFilms:9/justiceleaguespanish:b
 - https://lbry.tv/@BlockchaineFilms:9/justiceleaguespanish:b
 - https://lbry.tv/@anime:e8d/Escola_de_Treinamento_Setouchi_Keijo:0
