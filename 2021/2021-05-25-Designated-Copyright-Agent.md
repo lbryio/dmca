@@ -8,65 +8,65 @@ Sky Italia s.r.l. (SKY) is the operator of important italian digital pay (linear
 
 We inform you that the addresses below are used to provide access to Sky Italy's contents protected by copyright laws:
 
-https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-23:1
-https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-22:c
-https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-24:3
-https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-21:0
-https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-20:4
-https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-19:2
-https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-18:6
-https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-17:5
-https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-16:7
-https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-15:e
-https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-14:b
-https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-13:2
-https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-12:6
-https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-11:1
-https://odysee.com/@DWEBTV:e/Celebrity-MasterChef-Italia---ep.1x02-720p-Spyro.mkv:9
-https://odysee.com/@DWEBTV:e/Celebrity-MasterChef-Italia---S01xE01:7
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-23:c
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-21:e
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-22:9
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-19:9
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-16:5
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-17:7
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-2019:8
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-18:8
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-15:9
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-20:f
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-2021:2
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-13:d
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-12:5
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-10:0
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-14:6
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-11:e
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-8:f
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-9:3
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-2020:8
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-7:0
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-3:3
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-4:8
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-2:a
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-5:0
-https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-6:3
-https://odysee.com/@DWEBTV:e/masterchef-all-stars-italia:e
-https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-6:4
-https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2020-4:0
-https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2020-stagione:7
-https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2020-5:d
-https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2020-3:9
-https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2020-2:b
-https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2020-8:c
-https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2020-7:2
-https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2020-6:8
-https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2019-6:3
-https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2019-4:f
-https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2019-7:8
-https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2019-2:d
-https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2019-stagione:7
-https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2019-5:9
-https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2019-8:5
-https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2019-3:7
+- https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-23:1
+- https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-22:c
+- https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-24:3
+- https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-21:0
+- https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-20:4
+- https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-19:2
+- https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-18:6
+- https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-17:5
+- https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-16:7
+- https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-15:e
+- https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-14:b
+- https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-13:2
+- https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-12:6
+- https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-11:1
+- https://odysee.com/@DWEBTV:e/Celebrity-MasterChef-Italia---ep.1x02-720p-Spyro.mkv:9
+- https://odysee.com/@DWEBTV:e/Celebrity-MasterChef-Italia---S01xE01:7
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-23:c
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-21:e
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-22:9
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-19:9
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-16:5
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-17:7
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-2019:8
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-18:8
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-15:9
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-20:f
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-2021:2
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-13:d
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-12:5
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-10:0
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-14:6
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-11:e
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-8:f
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-9:3
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-2020:8
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-7:0
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-3:3
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-4:8
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-2:a
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-5:0
+- https://odysee.com/@DWEBTV:e/alessandro-borghese-4-ristoranti-hd-6:3
+- https://odysee.com/@DWEBTV:e/masterchef-all-stars-italia:e
+- https://odysee.com/@DWEBTV:e/masterchef-hd-stagione-10-episodio-6:4
+- https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2020-4:0
+- https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2020-stagione:7
+- https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2020-5:d
+- https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2020-3:9
+- https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2020-2:b
+- https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2020-8:c
+- https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2020-7:2
+- https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2020-6:8
+- https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2019-6:3
+- https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2019-4:f
+- https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2019-7:8
+- https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2019-2:d
+- https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2019-stagione:7
+- https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2019-5:9
+- https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2019-8:5
+- https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2019-3:7
 
 These addresses are sharing a content that Sky Italia is offering to its own subscribers. Therefore, the following notification is being provided to you, to the extent necessary to protect Sky's rights, also in the form of a DMCA notification. Evidence of the violation has been archived.
 
@@ -84,12 +84,12 @@ Sky original production - TV show: "MasterChef All Stars Italia"
 
 Links to the original work:
 
-https://sky.it
-https://masterchef.sky.it
-https://nowtv.it/watch/home/asset/masterchef-italia/skyuno_323d976ac48d400ea00cd8123f8b410c
-https://nowtv.it/watch/home/asset/alessandro-borghese-4-ristoranti/skyuno_ba4ccf31cfe0498c88a8bddbb8daf8e7
-https://nowtv.it/watch/home/asset/bruno-barbieri-4-hotel/skyuno_8b77d0040c1d409f8c11b318817fb48f
-https://nowtv.it/watch/intrattenimento/collezione/sky-original
+- https://sky.it
+- https://masterchef.sky.it
+- https://nowtv.it/watch/home/asset/masterchef-italia/skyuno_323d976ac48d400ea00cd8123f8b410c
+- https://nowtv.it/watch/home/asset/alessandro-borghese-4-ristoranti/skyuno_ba4ccf31cfe0498c88a8bddbb8daf8e7
+- https://nowtv.it/watch/home/asset/bruno-barbieri-4-hotel/skyuno_8b77d0040c1d409f8c11b318817fb48f
+- https://nowtv.it/watch/intrattenimento/collezione/sky-original
 
 
 (I) I have a good faith belief that use of the copyrighted materials described above is not authorized by the copyright owner, its agent, or the law.
