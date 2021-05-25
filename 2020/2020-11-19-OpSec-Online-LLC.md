@@ -11,6 +11,10 @@ BIG BROTHER BRASIL (2020)
   
 Copyright infringing material or activity found at the following URLs:
 - http://lbry.tv/@Movies:d41/Skyfall-2012-Bluray-10Bit-1080P-Dd5.1-H265-D3g-1:0
+- -https://lbry.tv/@pc.activo2913:7?page=1
+- https://lbry.tv/@SAPIENCE:8/A-VOIR--THRIVE-II-ET-A-REVOIR-PUIS-PARTAGER:a
+- https://lbry.tv/@joseguillen:8/el-violador-eres-tu-analizando-la-rosa:3
+- https://lbry.tv/@Movies2021HD:8/Wind.River.2017:a
 - https://lbry.tv/@ECW:2/ecw-hardcore-tv-02-22-1994:a
 - https://lbry.tv/@films-Fran%C3%A7ais:2/rocky-5-french-1990:7
 - https://lbry.tv/@RedPillGamingTV:b/bill-maher-btc:b
