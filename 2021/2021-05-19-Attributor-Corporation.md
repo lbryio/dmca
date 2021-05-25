@@ -34,3 +34,7 @@ Rights Holder: Audible
 Original Work: Project Hail Mary
 
 Infringing URL: https://odysee.com/@AudioBooksBeyond:1/Project-Hail-Mary:7?r=Cg7eHVJzfxnobi9Vkkp9j9iUg54q8xBr
+- https://odysee.com/@TheTruthWillSetYouFree:a/Animal-Farm-Orwell:a
+- https://odysee.com/@Murderforthemission:f/flowery-cooperative-wolverine:2 
+- https://odysee.com/@SlavesNoMore:b/Animal-Farm-George-Orwell:5 
+- https://odysee.com/@TheTruthWillSetYouFree:a/Animal-Farm-Orwell:a
