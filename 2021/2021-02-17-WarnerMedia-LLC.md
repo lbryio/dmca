@@ -23,8 +23,20 @@ agent@warnerbros.copyright-notice.com
 What was located as infringing content:
 
 --------------------------------------------------
-
+- https://lbry.tv/@Ralmonte:7/Mortal-Kombat-la-Venganza-de-Scorpion:e
+- https://lbry.tv/@tonyGJ:0/Lexorciste:7
+-- https://lbry.tv/@tanmayDD:a/BvS:8
+- https://lbry.tv/@FDE:a/The-Matrix-Reloaded:2
+- https://lbry.tv/@stpierrs:f/the_dark_knight_2008___5d3a7ac135da3:7
+- https://lbry.tv/@Vanesuki:8/El-Atlas-de-la-Nubes:d
+- https://lbry.tv/@unmundomejoresposible:f/BELLEZA-OCULTA:e
+- https://lbry.tv/@oraculodezamna:9/entrevista-con-el-vapimro:7
 - https://lbry.tv/@memetherapy:3/steven-seagal-in-hard-to-kill-in-40:f
+- https://lbry.tv/@ivandozz:4/El-Reino-de-los-superman:9
+- https://lbry.tv/@CENDASHUNABKU:2/Un-domingo-cualquiera-1999:d
+- https://lbry.tv/@Tu_Universo_Cristiano:b/ben-hur2:9
+- https://lbry.tv/@Y:d2/The-Grim-Adventures-of-Billy-and-Mandy-Disc-1-:f
+- https://lbry.tv/@stpierrs:f/wonder_woman_1984_2020___5fe9e4e119d4a:1
 - https://lbry.tv/THRIVEIIESPA%C3%91OL:5
 - https://lbry.tv/@Projetospeedart:0/tonikaku-kawaii-epis-dio-2-parte-05:4
 - https://lbry.tv/@BlockchaineFilms:9/justiceleaguespanish:b
