@@ -24,6 +24,8 @@ On behalf of Vobile as an agent for STX
 <personal infomation hidden>
 
 - https://lbry.tv/@wakethefup:5/Songbird--The-Movie:9
-https://cdn.lbryplayer.xyz/api/v4/streams/free/Songbird--The-Movie/938e427aaa2c9f372578a4c5c1a6ab1c75950a7e/6b735b
+- https://cdn.lbryplayer.xyz/api/v4/streams/free/Songbird--The-Movie/938e427aaa2c9f372578a4c5c1a6ab1c75950a7e/6b735b
 - https://lbry.tv/@SansMASQUE:7/COVID-23SONGBIRD:4
-https://cdn.lbryplayer.xyz/api/v4/streams/free/COVID-23SONGBIRD/4665ca0992297b15581719dbb2df8e00bd55f3c1/742e1d
+- https://cdn.lbryplayer.xyz/api/v4/streams/free/COVID-23SONGBIRD/4665ca0992297b15581719dbb2df8e00bd55f3c1/742e1d
+- https://lbry.tv/@PELICULASESTRENONEOR:1/GREENLAND:7
+- https://lbry.tv/@oraculodezamna:9/Greenland---Fin-del-Mundo:4
