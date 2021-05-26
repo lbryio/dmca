@@ -11,6 +11,7 @@ ce clip a etais realisé sans mon accord cette personne colle des videos de moi 
 - https://lbry.tv/@SamusMaximus:c/estelle-red-pill-a-montr-sa-culotte-dans:0
 - https://lbry.tv/@startufes-systeme:b/le-vrai-visage-de-la-collabo-double-face-estelle-red-pill:d
 - https://odysee.com/@labo:0/estelle-redpill-la-chr-tienne-non:c
+- https://odysee.com/EstelleRedpill:30
 
 
  Cette vidéo a étais faites sans mon accord il s'agit d'un clip avec mon image intime en string une vidéo pour m'humilier un procès est en cours cette vidéo ne peux être diffuser vu que mon image y est utilisée sans mon consentement pour but de nuire à mon image et à ma réputation .
