@@ -11,6 +11,16 @@ BIG BROTHER BRASIL (2020)
   
 Copyright infringing material or activity found at the following URLs:
 - http://lbry.tv/@Movies:d41/Skyfall-2012-Bluray-10Bit-1080P-Dd5.1-H265-D3g-1:0
+- https://lbry.tv/@CONSCIENCE-LIFE:4/MAD-HATTER:3
+- http://lbry.tv/@IndigoCastle:a/Pelicula..:f 
+- http://lbry.tv/@pelis_y_series_ranbom:b/the-nevers:6
+- http://lbry.tv/@pelis_y_series_ranbom:b/the-nevers-2:e
+- http://lbry.tv/@pelis_y_series_ranbom:b/the-nevers-3:8
+- http://lbry.tv/@pelis_y_series_ranbom:b/the-nevers-4:c
+- http://lbry.tv/@pelis_y_series_ranbom:b/the-nevers-5:f
+- http://lbry.tv/@SmoothGames:6/la-rosa-de-guadalupe-windy-girk-deseos:8
+- http://lbry.tv/@SmoothGames:6/mi-t-a-me-come-la-rosa-de-guadalupe-cr:1
+- http://lbry.tv/@SmoothGames:6/obligar-a-mi-alumna-la-rosa-de-guadalupe:f
 - -https://lbry.tv/@pc.activo2913:7?page=1
 - https://lbry.tv/@SAPIENCE:8/A-VOIR--THRIVE-II-ET-A-REVOIR-PUIS-PARTAGER:a
 - https://lbry.tv/@joseguillen:8/el-violador-eres-tu-analizando-la-rosa:3
