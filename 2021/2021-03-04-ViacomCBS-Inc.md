@@ -58,16 +58,19 @@ https://lbry.tv/@IrohDW:7/A-Philosopher-Reacts-To-Legend-Of-Korra---Episodes-1-A
 _________________________________________________________________________________________________
 
 - https://lbry.tv/@QueerAsFolk:c/1x21-Corriendo-para-seguir-en-pie:0 
--  https://lbry.tv/@QueerAsFolk:c/5x07-Esperanza-contra-esperanza:c 
--  https://lbry.tv/@IrohDW:7/05-The-Lust-Triangle:3
+- https://lbry.tv/@razorfx9:2/yellowstoneS01E02:1
+- https://lbry.tv/@BubbleGuppies:c/La-Gran-Carrera-de-los-Crayones:b
+- https://lbry.tv/@ybertpierre:a/PapaSchultz:f
+- https://lbry.tv/@QueerAsFolk:c/5x07-Esperanza-contra-esperanza:c 
+- https://lbry.tv/@IrohDW:7/05-The-Lust-Triangle:3
 - https://lbry.tv/@Stargate:2/Christopher-Judge-on-MacGyver:f
 - https://lbry.tv/@1000WaysToDie:0/S1E7DeathBeNotStupid:2 
 - https://lbry.tv/@Vlad_Scop:3/jersey-shore-family-vacation-s04e13-feb:7
 - https://lbry.tv/@Hit_Parade:a/Hurt---Johnny-Cash:b
 - https://lbry.tv/@1000WaysToDie:0/S1E7DeathBeNotStupid:2 
 - https://lbry.tv/@RPDRSEASON12:f/ep1p2:9
--  https://lbry.tv/@Billions:4/Billions-S01E09-WheretheFuckisDonnie720pHDTVmp4:c
--  https://lbry.tv/@Billions:4/Billions-S01E10-QualityofLife720pHDTVmp4:1
+- https://lbry.tv/@Billions:4/Billions-S01E09-WheretheFuckisDonnie720pHDTVmp4:c
+- https://lbry.tv/@Billions:4/Billions-S01E10-QualityofLife720pHDTVmp4:1
 - https://lbry.tv/@TheCine:0/Todo-Mundo-Odeia-o-Chris-1x01-Piloto-5_5-HD:d
 - https://lbry.tv/@TheCine:0/Todo-Mundo-Odeia-o-Chris-1x01-Piloto-3_5-HD:1
 
