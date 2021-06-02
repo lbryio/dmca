@@ -24,7 +24,9 @@ What was located as infringing content:
 
 --------------------------------------------------
 - https://lbry.tv/@Ralmonte:7/Mortal-Kombat-la-Venganza-de-Scorpion:e
+- https://lbry.tv/@TV2RNOUNA:3/a99ee8:0
 - https://lbry.tv/@tonyGJ:0/Lexorciste:7
+- https://lbry.tv/@sylranch:0/batwoman-s01e14-grinning-from-ear-to-ear:7
 -- https://lbry.tv/@tanmayDD:a/BvS:8
 - https://lbry.tv/@FDE:a/The-Matrix-Reloaded:2
 - https://lbry.tv/@stpierrs:f/the_dark_knight_2008___5d3a7ac135da3:7
