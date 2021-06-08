@@ -57,7 +57,26 @@ https://lbry.tv/@IrohDW:7/A-Philosopher-Reacts-To-Legend-Of-Korra---Episodes-1-A
 
 _________________________________________________________________________________________________
 
-- https://lbry.tv/@QueerAsFolk:c/1x21-Corriendo-para-seguir-en-pie:0 
+- https://lbry.tv/@QueerAsFolk:c/1x21-Corriendo-para-seguir-en-pie:0
+- https://lbry.tv/@LBRYrandom:a/penn-teller-fool-us-magic-with-cheese:8
+- https://lbry.tv/@LBRYrandom:a/penn-teller-fool-us-nathan-coe-marsh:5
+- https://lbry.tv/@robcampo:0/Em-Bear-Assed:f
+- https://lbry.tv/@AVATAR:e/Vigneshshetty:b
+- https://lbry.tv/@VoiceOfTheEmperor:b/ncis-los-angeles-the-professionals:7
+- https://lbry.tv/@SouthParkITA:1/South_Park_-_05x04:5
+- https://lbry.tv/@SouthParkFR:2/South-Park-S22e05-Les-Trottinettes:0
+- https://lbry.tv/@SouthParkFR:2/South-Park-S22e08-Bouddha-Box:3
+- https://lbry.tv/@deltagold:e/South-Park-Funny-Moments-For-30-Minutes-1:9
+- https://lbry.tv/@SouthParkFR:2/South-Park-S21e07-Mensonges-et-Trahisons:5
+- https://lbry.tv/@CinemaCraft:b/adam-kills-rocco-and-fleeds-the-scene:b
+- https://lbry.tv/@CinemaCraft:b/adam-kills-rocco-and-fleeds-the-scene:b
+- https://lbry.tv/@CinemaCraft:b/eugene-shoots-adam-in-the-throat-your:7
+- https://lbry.tv/@clips:54/S1-E2:6
+- https://lbry.tv/@JeremySP:2/Christmas_Medley_SP_Latino:c
+- https://lbry.tv/@clips:54/S1-E3:d
+- https://lbry.tv/@VoiceOfTheEmperor:b/the-pacific-guadalcanal:d
+- https://lbry.tv/@TodoMundoOdeiaoChris:4/todo-mundo-odeia-o-chris-1-temporada:d
+- https://lbry.tv/@IDXHD49CINE:d/Active-ShooterE02:b
 - https://lbry.tv/@razorfx9:2/yellowstoneS01E02:1
 - https://lbry.tv/@BubbleGuppies:c/La-Gran-Carrera-de-los-Crayones:b
 - https://lbry.tv/@ybertpierre:a/PapaSchultz:f
