@@ -11,6 +11,17 @@ BIG BROTHER BRASIL (2020)
   
 Copyright infringing material or activity found at the following URLs:
 - http://lbry.tv/@Movies:d41/Skyfall-2012-Bluray-10Bit-1080P-Dd5.1-H265-D3g-1:0
+- https://lbry.tv/@RawrTheRock:c/Cobra-Kai-Ep-2-Strike-First-The-Karate-Kid-Saga-Continues_1080p:0
+- https://lbry.tv/@Arr-Bat:d/THE-MAURITANIAN-(Film):1
+- http://lbry.tv/@CyberpunkArchivesFilmes:3/RoboCop.1987.720p.BrRip.x264.YIFY:3
+- http://lbry.tv/@CyberpunkArchives-MOVIES:3/RoboCop.3.1993.720p.BrRip.x264.YIFY:5
+- https://lbry.tv/007-contra-goldfinger:1 
+- https://lbry.tv/007-contra-o-satanico-dr-no:3
+- http://lbry.tv/@CyberpunkArchives-MOVIES:3/Robocop:5
+- https://lbry.tv/@MegaPeliculas:8/Oslo.2021.1080P.Dual.Lat.Cine-Calidad.Com:8
+-  http://lbry.tv/@FreeWrestling:0/wcw-saturday-night-april-25-1992:e
+-  https://lbry.tv/@MegaPeliculas:8/Oslo.2021.1080P.Dual.Lat.Cine-Calidad.Com:8
+- https://lbry.tv/@FreeWrestling:0/wcw-saturday-night-may-16-1992:5
 -  http://lbry.tv/@ECW:2/ecw-hardcore-tv-04-26-1994:9
 - https://lbry.tv/@CONSCIENCE-LIFE:4/MAD-HATTER:3
 - http://lbry.tv/@IndigoCastle:a/Pelicula..:f 
