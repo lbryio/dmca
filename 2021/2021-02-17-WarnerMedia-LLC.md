@@ -24,7 +24,10 @@ What was located as infringing content:
 
 --------------------------------------------------
 - https://lbry.tv/@Ralmonte:7/Mortal-Kombat-la-Venganza-de-Scorpion:e
+- https://lbry.tv/@tuttoserie:d/disjointedepisodio4:5
+- https://lbry.tv/@NostalgiaMusic:f/MANIFEST-S01E09-DUBLADO:2
 - https://lbry.tv/@BUPELIS:b/BUPELIS:5
+- https://lbry.tv/@Movies:46/Wonder-Woman-1984:8
 - https://lbry.tv/@s0viestsenpai:c/the-god-of-hihg-school-capitulo-2-:e
 - https://lbry.tv/@GrupoFMSB:9/LasBrujas:8
 - https://lbry.tv/@528hz_Truth_Movies:f/764543772_V--FOR-VENDETTA:a
