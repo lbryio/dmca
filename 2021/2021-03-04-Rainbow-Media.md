@@ -22,9 +22,9 @@ Vobile Inc. on behalf of AMC Film Holdings LLC
 What was located as infringing content:
 --------------------------------------------------
 
-
+- https://lbry.tv/@DocuTV:4/Watch-10x02-m720p-mkv:5
+- https://lbry.tv/@DocuTV:4/Watch-thwd-10x01-m720p-mkv:6
 The Walking Dead
-
 - https://lbry.tv/@NETPLAY:b/The-Walking-Dead-t10-Capitulo-12:8 
 - https://lbry.tv/@NETPLAY:b/The-Walking-Dead-t10-Capitulo-6:8
 - https://lbry.tv/@NETPLAY:b/The_Walking_Dead_10x3:d
