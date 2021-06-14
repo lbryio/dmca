@@ -19,9 +19,4 @@ Should you wish to discuss this with me please contact me directly.
 Thank you.
 
 Dr Samantha Bailey
-PO Box 33270
-Barrington
-Christchurch 8022,
-NEW ZEALAND
-+64211325011
-admin@drsambailey.com
+<personal information hidden>
