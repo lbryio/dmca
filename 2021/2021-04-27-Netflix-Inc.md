@@ -27,6 +27,7 @@ agent@netflix.copyright-notice.com
 Infringing content:
 
 - https://lbry.tv/@sasergio005:3/A-Week-Away:6
+- https://lbry.tv/@KOMEDIE:1/Hubieho_Haloween:4
 - https://lbry.tv/@channelbuzz:c/Watch-Army-i:0
 - https://lbry.tv/@entretenimiento:3/1-dejavu:0
 - https://lbry.tv/@PELICULASESTRENONEOR:1/PROJECT-POWER:3
