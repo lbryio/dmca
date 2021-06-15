@@ -12,6 +12,19 @@ BIG BROTHER BRASIL (2020)
 Copyright infringing material or activity found at the following URLs:
 - http://lbry.tv/@Movies:d41/Skyfall-2012-Bluray-10Bit-1080P-Dd5.1-H265-D3g-1:0
 - https://lbry.tv/@RawrTheRock:c/Cobra-Kai-Ep-2-Strike-First-The-Karate-Kid-Saga-Continues_1080p:0
+- http://lbry.tv/Real-Time-With-Bill-Maher-(642021):7
+- http://lbry.tv/@CyberpunkArchives-MOVIES:3/RoboCop.3.1993.720p.BrRip.x264.YIFY:5
+- http://lbry.tv/@CyberpunkArchives-MOVIES:3/Robocop:5
+- http://lbry.tv/@FabitoCINEMA-CineySeries:c/007-1983-octopussy-CASTELLANO:4
+- http://lbry.tv/@FabitoCINEMA-CineySeries:c/007-james-bond-1979_moonraker:a
+- http://lbry.tv/@CyberpunkArchives-MOVIES:3/Terminator:4
+- http://lbry.tv/@MyCollection:c/Cherry.2021.lati:6
+- http://lbry.tv/Real-Time-With-Bill-Maher:d
+- http://lbry.tv/@ECW:2/ecw-hardcore-tv-02-15-1994:9
+- http://lbry.tv/@ECW:2/ecw-hardcore-tv-03-15-1994:0
+- http://lbry.tv/@ECW:2/ecw-hardcore-tv-04-05-1994:2
+- http://lbry.tv/@ECW:2/ecw-hardcore-tv-04-12-1994:a
+- http://lbry.tv/@ECW:2/ecw-hardcore-tv-04-19-1994:b
 - https://lbry.tv/@Arr-Bat:d/THE-MAURITANIAN-(Film):1
 - http://lbry.tv/@CyberpunkArchivesFilmes:3/RoboCop.1987.720p.BrRip.x264.YIFY:3
 - http://lbry.tv/@CyberpunkArchives-MOVIES:3/RoboCop.3.1993.720p.BrRip.x264.YIFY:5
