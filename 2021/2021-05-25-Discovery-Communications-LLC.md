@@ -22,6 +22,12 @@ On behalf of Vobile as an agent for Discovery Communications, LLC
 Santa Clara, CA 95054
 agent@discovery.copyright-notice.com
 
+- https://lbry.tv/@Hardtofindtvshows:5/The-Colony---S01E01---Arrival-and-Survival---HDTV:8
+- https://lbry.tv/@Hardtofindtvshows:5/The-Colony---S01E03---Comfort-in-Chaos---HDTV:3
+- https://lbry.tv/@Watch:2/Hercules-2014-jaFgd9hVboc:0
+- https://lbry.tv/@runningbear:9/90-day-fiance-before-the-90-days-3:7
+- https://lbry.tv/@IDXHD49CINE:d/AMERICAN-MONSTER-EP1:2
+- https://lbry.tv/@lorenzo974:0/Ghost-Adventures-Saison15-Episode-6-VF:0
 
 Guy's Grocery Games (Season 22)
 - https://lbry.tv/@LBRYrandom:a/guys-grocery-games-s21e03-guys-carnival:6
