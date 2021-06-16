@@ -24,6 +24,16 @@ What was located as infringing content:
 
 --------------------------------------------------
 - https://lbry.tv/@Ralmonte:7/Mortal-Kombat-la-Venganza-de-Scorpion:e
+- https://lbry.tv/@Tungsten_Movies:7/Wonder-Woman-1984:4
+- https://lbry.tv/@lochost:a/BandOfBrothers-06-Bastogne:6
+- https://lbry.tv/@lochost:a/BandOfBrothers-05-CroiseeDesChemins:9
+- https://lbry.tv/@SeriesGeniales:d/TBBT-11X02:4
+- https://lbry.tv/@T15sobrenatural:b/Episodio16-Dragmeaway:7
+- https://lbry.tv/@Anime0:d/Jojos-Juventud-con-Dio:2
+- https://lbry.tv/@Series_Latino:5/TBBT_S03_E05:6
+- https://lbry.tv/@Anime0:d/Jojos-Una-carta-del-pasado:a
+- https://lbry.tv/@Anime0:d/Jojos-sobremarcha:e
+- https://lbry.tv/@Anime0:d/jojos-Dio-el-Invasor:8
 - https://lbry.tv/@tuttoserie:d/disjointedepisodio4:5
 - https://lbry.tv/@NostalgiaMusic:f/MANIFEST-S01E09-DUBLADO:2
 - https://lbry.tv/@BUPELIS:b/BUPELIS:5
