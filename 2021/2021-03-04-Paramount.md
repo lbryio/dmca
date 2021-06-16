@@ -32,6 +32,13 @@ On behalf of Vobile as an agent for Paramount
 Information Regarding Infringed Paramount Works
 
 - https://lbry.tv/@Southparklibertarian:a/Filme-south-park:e
+- https://lbry.tv/@nuke:b/bigshort-ita:5
+- https://lbry.tv/@Archivist:e/TheRoadToElDorado:f
+- https://lbry.tv/@donatiens:8/Clerks_1994:b
+- https://lbry.tv/@CHINAMOIVE:0/1:c
+- https://lbry.tv/@CineClasico:a/VIVEN-1993-ALIVE-Castellano:9
+- https://lbry.tv/@TheAmazingMovieZone:8/0f4c9d18698adbf781d1172d26a642e8-720p:8
+- https://lbry.tv/@vforvendetta:7/Film-13-Hours-VF-Complet-HD:1
 - https://lbry.tv/@ChristopherKennethBowser:6/No-Direction-Home---Bob-Dylan--2005--Part2--conv:3
 - https://lbry.tv/@sasergio005:3/A-Quiet-Place-2018-Full-movie-online-MyFlixer:9
 - https://lbry.tv/@FilmesBR:8?view=about
