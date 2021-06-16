@@ -1,0 +1,3 @@
+Recieved confirmed report of using personal videos/information without permission. 
+
+Marcus Bauermeister, the creator of the Ultra Halal Podcast on Odysee.com, has made a total of three confirmed videos on the site in which he uses photos of myself, our old messages, and photos of my partner without our consent. Most of these photos are stolen from our Facebook accounts, and I have had to delete not one but two accounts because of Mark cyberstalking me and harassing me via email for the past year. In his video 'Deported and Angry', which is also on Odysee, he reveals my legal name and states that he 'no longer cares about my privacy or safety'.
