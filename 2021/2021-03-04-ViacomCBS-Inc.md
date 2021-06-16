@@ -58,6 +58,12 @@ https://lbry.tv/@IrohDW:7/A-Philosopher-Reacts-To-Legend-Of-Korra---Episodes-1-A
 _________________________________________________________________________________________________
 
 - https://lbry.tv/@QueerAsFolk:c/1x21-Corriendo-para-seguir-en-pie:0
+- https://lbry.tv/@TastyWiener95:7/gypsy-sponge-bob-luckyboys305:8
+- https://lbry.tv/@BubbleGuppies:c/Sir-Nonny-el-Bueno:4
+- https://lbry.tv/@RareMedia:b/Kwarantined-Krab:b
+- https://lbry.tv/@CinemaCraft:b/the-crew-fights-off-the-bulls-moonbase-8:8
+- https://lbry.tv/@RawNews:1/Meghan-Markle-prince-harry-full-Interview-2021:d
+- https://lbry.tv/@Metallica:1/metallica-enter-sandman:e
 - https://lbry.tv/@LBRYrandom:a/penn-teller-fool-us-magic-with-cheese:8
 - https://lbry.tv/@LBRYrandom:a/penn-teller-fool-us-nathan-coe-marsh:5
 - https://lbry.tv/@robcampo:0/Em-Bear-Assed:f
