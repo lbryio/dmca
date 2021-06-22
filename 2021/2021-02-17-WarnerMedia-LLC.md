@@ -24,7 +24,12 @@ What was located as infringing content:
 
 --------------------------------------------------
 - https://lbry.tv/@Ralmonte:7/Mortal-Kombat-la-Venganza-de-Scorpion:e
+- https://lbry.tv/@Projetospeedart:0/tonikaku-kawaii-epis-dio-4-dublado-parte:f
+- https://lbry.tv/@Projetospeedart:0/tonikaku-kawaii-epis-dio-4-dublado-3:a
+- https://lbry.tv/@Projetospeedart:0/tonikaku-kawaii-epis-dio-4-dublado-5:a
+- https://lbry.tv/@Projetospeedart:0/tonikaku-kawaii-epis-dio-4-dublado-7:0
 - https://lbry.tv/@Tungsten_Movies:7/Wonder-Woman-1984:4
+- https://lbry.tv/@PelisCor77:0/temp-1-capitulo-6:4
 - https://lbry.tv/@lochost:a/BandOfBrothers-06-Bastogne:6
 - https://lbry.tv/@lochost:a/BandOfBrothers-05-CroiseeDesChemins:9
 - https://lbry.tv/@SeriesGeniales:d/TBBT-11X02:4
