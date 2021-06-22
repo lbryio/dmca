@@ -11,6 +11,14 @@ BIG BROTHER BRASIL (2020)
   
 Copyright infringing material or activity found at the following URLs:
 - http://lbry.tv/@Movies:d41/Skyfall-2012-Bluray-10Bit-1080P-Dd5.1-H265-D3g-1:0
+- https://lbry.tv/@FTC-NL:0/The-Crime-of-the-Century-1:2
+- https://lbry.tv/@FTC-NL:0/The-Crime-of-the-Century-2:c
+- http://lbry.tv/@ARN:4/arn-71-wcw-saturday-night-01-16-93:3
+- http://lbry.tv/@ECW:2/ecw-hardcore-tv-02-01-1994:1
+- http://lbry.tv/@ECW:2/ecw-hardcore-tv-03-29-1994:3
+- http://lbry.tv/@ECW:2/ecw-hardcore-tv-11-30-1993:3
+- http://lbry.tv/@FreeWrestling:0/wcw-saturday-night-september-19-1992:3
+- http://lbry.tv/THRIVE-II-Ce-qu'il-faut-pour-y-arriver-(VOSTFR):d
 - https://lbry.tv/@RawrTheRock:c/Cobra-Kai-Ep-2-Strike-First-The-Karate-Kid-Saga-Continues_1080p:0
 - http://lbry.tv/Real-Time-With-Bill-Maher-(642021):7
 - http://lbry.tv/@CyberpunkArchives-MOVIES:3/RoboCop.3.1993.720p.BrRip.x264.YIFY:5
