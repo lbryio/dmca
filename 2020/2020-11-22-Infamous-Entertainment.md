@@ -11,6 +11,9 @@ Please remove the following unauthorized links from you service:
 - https://odysee.com/@QuantumRhino:9/The-Phenomenon-(2020)-1080p:d
 - https://odysee.com/@Loveforseasons:6/The.Phenomenon:4
 - https://odysee.com/@ItsTime2WakeUp:d/A-Thousand-Pieces---This-is-a-True-Conspiracy-Documentary:f
+- https://odysee.com/@PastorShadilay:a/DeepRig:c
+- https://odysee.com/@QuantumRhino:9/QR-Rumble-Backup-Channel:c
+
 
 These links are in violation of Infamous Entertainment's copyright and distribution rights.
 
