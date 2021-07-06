@@ -24,6 +24,30 @@ What was located as infringing content:
 
 --------------------------------------------------
 - https://lbry.tv/@Ralmonte:7/Mortal-Kombat-la-Venganza-de-Scorpion:e
+- https://lbry.tv/@freefilm:6/Inception:a
+- https://lbry.tv/@TUBER:5/rurouni-kenshin-the-final-2021:9 
+- https://lbry.tv/@Sebastianhans:2/Viernes-13-Parte-9-Latino-ByTromanso:1
+- https://lbry.tv/@Chaoticanarchyx:9/Teen_Titans_S01E03_Divide_and_Conquer:f
+- https://lbry.tv/@Chaoticanarchyx:9/Teen_Titans_S01E02_Sisters:8
+- https://lbry.tv/@Chaoticanarchyx:9/Teen_Titans:6
+- https://lbry.tv/@ChristopherKennethBowser:6/Metalocalypse-Season-1-Episode-11---Skwisklock:f
+- https://lbry.tv/@Chaoticanarchyx:9/Teen_Titans_S01E04_Forces_of_Nature:5
+- https://lbry.tv/@Chaoticanarchyx:9/Teen-Titans---S01E05---Sum-of-His-Parts:6
+- https://lbry.tv/@Sebastianhans:2/Terminator-4-Latino-ByTromanso:5
+- https://lbry.tv/@PeliculasCompletas:c/El-Hobbit---Un-viaje-inesperado:6 
+- https://lbry.tv/@MoviesYouWant:7/WW1984:7 
+- https://lbry.tv/@DeinFilmKanal:5/Die-Verurteilten:6
+- https://lbry.tv/@JMExplorations18:f/the-shawshank-redemption-filming:5
+- https://lbry.tv/@DeinFilmKanal:5/Im-Auftrag-des-Teufels-deutsch-ganzer-film:f
+- https://lbry.tv/@Probando:e/perdidos:3
+- https://lbry.tv/@BioWar:4/biowar:c
+- https://lbry.tv/@ovnis:5/Falling-Skies-Saison-21:7
+- https://lbry.tv/@Alpha77:3/52cf1c:7
+- https://lbry.tv/@Vanesuki:e/El-Atlas-de-las-nubes:5
+- https://lbry.tv/@MaChaineTest2:4/Contact-1997-:d
+- https://lbry.tv/@LovelineChannel:1/Loveline-Compendium-Vol-123-Addendum:b
+- https://lbry.tv/@Filmescompletos:1/narte:b
+- https://lbry.tv/@PeliculasCompletas:c/El-Hobbit---La-desolacion-de-smaug:b 
 - https://lbry.tv/@Projetospeedart:0/tonikaku-kawaii-epis-dio-4-dublado-parte:f
 - https://lbry.tv/@Projetospeedart:0/tonikaku-kawaii-epis-dio-4-dublado-3:a
 - https://lbry.tv/@Projetospeedart:0/tonikaku-kawaii-epis-dio-4-dublado-5:a
