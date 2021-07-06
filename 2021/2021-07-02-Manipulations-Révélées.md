@@ -12,6 +12,8 @@ The unauthorized and infringing copy can be found at:
 
 - https://odysee.com/@Ribelo-Infanoj:5/La-preuve-que-STEPHANIE-BULTEL-soutient-les-R%C3%A9seaux:9?
 - https://odysee.com/@Ribelo-Infanoj:5/La-preuve-que-STEPHANIE-BULTEL-est-une-menteuse:0
+- https://odysee.com/@whatabeautifulworld:8/La_D%C3%A9fense_Catastrophique_de_SB_Troll_Internet:a
+-  https://odysee.com/@agoratvnews2:6/pourquoi-nos-cha-nes-ont-t-bloqu-es-et:d
 
 This letter is official notification under Section 512(c) of the Digital Millennium Copyright Act ("DMCA"), and I seek the removal of the aforementioned infringing material from your servers. I request that you immediately notify the infringer of this notice and inform them of their duty to remove the infringing material immediately, and notify them to cease any further posting of infringing material to your server in the future.
 
