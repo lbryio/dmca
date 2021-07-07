@@ -58,11 +58,13 @@ https://lbry.tv/@IrohDW:7/A-Philosopher-Reacts-To-Legend-Of-Korra---Episodes-1-A
 _________________________________________________________________________________________________
 
 - https://lbry.tv/@QueerAsFolk:c/1x21-Corriendo-para-seguir-en-pie:0
+- https://lbry.tv/@OzFlor:7/Trek31:7
 - https://lbry.tv/@MisSeriesFavoritas:9/icarlycap1piloto:e 
 - https://lbry.tv/@cochoreynaga:f/Johnny-Cash---Hurt:e 
 - https://lbry.tv/@Mardokeon:d/GoDiegoGoCapitulo3DeLaTemporada1EnLatino:3 
 - https://lbry.tv/@Mardokeon:d/GoDiegoGoCapitulo2EnLatino:a 
--
+- https://lbry.tv/@JhonLP20:e/La-vida-moderna-de-Rocko-21-El-Crucero:5
+- https://lbry.tv/@JhonLP20:e/La-vida-moderna-de-Rocko-23-Un-Nuevo-Peinado-En-los-Bolos:e
 - https://lbry.tv/@TastyWiener95:7/gypsy-sponge-bob-luckyboys305:8
 - https://lbry.tv/@BubbleGuppies:c/Sir-Nonny-el-Bueno:4
 - https://lbry.tv/@RareMedia:b/Kwarantined-Krab:b
