@@ -19,6 +19,13 @@ Distributed by Fuga Music The Netherlands
 The unauthorized and infringing copy can be found at:
 
 - https://odysee.com/@DeepBeats:0/TRANCE-2020---UPLIFTING---VOCAL-TRANCE---FULL-ALBUM---OUT-NOW-:e
+- https://odysee.com/@DeepBeats:0/AMAZING-UPLIFTING-TRANCE-2020-JANUARY:7
+- https://odysee.com/@DeepBeats:0/UPLIFTING-TRANCE-MIX-2020---MAY---%E2%9C%85%E2%9C%85:4?
+- https://odysee.com/@DeepBeats:0/%E2%99%AB-Uplifting-Trance-Mix---April-2020-Vol.-105-%E2%99%AB:6
+- https://odysee.com/@DeepBeats:0/Amazing-Vocal-Uplifting-Trance-Mix-2020--2:0
+- https://odysee.com/@DeepBeats:0/The-30-Best-Trance-Music-Songs-Ever-5.-(Tiesto,-Armin,-Markus-Schulz,-Ferry-Corsten)---TranceForLife:2 
+- https://odysee.com/@DeepBeats:0/TRANCE-2020--FULL-ALBUM---OUT-NOW-:8
+- https://odysee.com/@DeepBeats:0/AMAZING-UPLIFTING-TRANCE-2020-JANUARY:7eport?
 
 This letter is official notification under Section 512(c) of the
 Digital Millennium Copyright Act (”DMCA”), and I seek the removal of
