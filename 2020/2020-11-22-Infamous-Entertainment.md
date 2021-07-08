@@ -5,6 +5,7 @@ Please remove the following unauthorized links from you service:
 - https://odysee.com/@DemAndy_Austria:c/A-Thousand-Pieces---A-True-Conspiracy-Documentary-1:0
 - https://odysee.com/@People4Liberty:e/The-Deep-Rig-FULL-Movie:8
 - https://odysee.com/@Sparky6461:e/Deep-Rig-Cut:9 
+- https://odysee.com/@stpierrs:f/The-Deep-Rig-Full-Movie:a
 - https://odysee.com/@QuantumRhino:9/The-Deep-Rig-(2021):7?
 - https://odysee.com/@somechannel:a2/The-Deep-Rig:2 
 - https://odysee.com/A-Thousand-Pieces---A-True-Conspiracy-Documentary-PY8GaleLKpg:c
