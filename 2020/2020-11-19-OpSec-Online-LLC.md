@@ -11,6 +11,7 @@ BIG BROTHER BRASIL (2020)
   
 Copyright infringing material or activity found at the following URLs:
 - http://lbry.tv/@Movies:d41/Skyfall-2012-Bluray-10Bit-1080P-Dd5.1-H265-D3g-1:0
+- http://lbry.tv/@petersmailrodriguezchavez:1/Rocky-4:2
 - https://lbry.tv/@Nesuwah_Lunastar:e/Climax-2018-napisy-PL-cz1:d
 - https://lbry.tv/@blusewillLiveLBRY:9/Ninja-Meets-Zippy-LBRY:6
 - https://lbry.tv/@FTC-NL:0/The-Crime-of-the-Century-1:2
@@ -46,10 +47,10 @@ Copyright infringing material or activity found at the following URLs:
 - https://lbry.tv/007-contra-o-satanico-dr-no:3
 - http://lbry.tv/@CyberpunkArchives-MOVIES:3/Robocop:5
 - https://lbry.tv/@MegaPeliculas:8/Oslo.2021.1080P.Dual.Lat.Cine-Calidad.Com:8
--  http://lbry.tv/@FreeWrestling:0/wcw-saturday-night-april-25-1992:e
--  https://lbry.tv/@MegaPeliculas:8/Oslo.2021.1080P.Dual.Lat.Cine-Calidad.Com:8
+- http://lbry.tv/@FreeWrestling:0/wcw-saturday-night-april-25-1992:e
+- https://lbry.tv/@MegaPeliculas:8/Oslo.2021.1080P.Dual.Lat.Cine-Calidad.Com:8
 - https://lbry.tv/@FreeWrestling:0/wcw-saturday-night-may-16-1992:5
--  http://lbry.tv/@ECW:2/ecw-hardcore-tv-04-26-1994:9
+- http://lbry.tv/@ECW:2/ecw-hardcore-tv-04-26-1994:9
 - https://lbry.tv/@CONSCIENCE-LIFE:4/MAD-HATTER:3
 - http://lbry.tv/@IndigoCastle:a/Pelicula..:f 
 - http://lbry.tv/@pelis_y_series_ranbom:b/the-nevers:6
