@@ -14,6 +14,7 @@ Please remove the following unauthorized links from you service:
 - https://odysee.com/@ItsTime2WakeUp:d/A-Thousand-Pieces---This-is-a-True-Conspiracy-Documentary:f
 - https://odysee.com/@PastorShadilay:a/DeepRig:c
 - https://odysee.com/@QuantumRhino:9/QR-Rumble-Backup-Channel:c
+- https://odysee.com/@QSynesthesia:7/The-Deep-Rig-(2021):0
 
 
 These links are in violation of Infamous Entertainment's copyright and distribution rights.
