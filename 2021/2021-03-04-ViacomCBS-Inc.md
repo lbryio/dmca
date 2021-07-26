@@ -35,6 +35,10 @@ agent@viacomcbs.copyright-notice.com
 What was located as infringing content:
 - --------------------------------------------------
 
+- https://lbry.tv/@LBRYrandom:a/cops-s32e09-720p:0
+- https://lbry.tv/@LBRYrandom:a/cops-s32e08-720p:a 
+- https://lbry.tv/@LBRYrandom:a/cops-s32e12-720p:c
+
 BEAVIS & BUTT-HEAD
 
 https://lbry.tv/@MustSee:0/bbpooltoys:5
