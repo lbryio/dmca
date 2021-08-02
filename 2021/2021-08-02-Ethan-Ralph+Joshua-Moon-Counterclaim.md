@@ -21,3 +21,28 @@ Thank you.
 ETHAN RALPH
 
 <private info redacted>
+  
+***
+
+
+**Counter claim submitted on 8/2/2021. Claimant notified and will have 10 days to produce court documents that re-affrims their position. If 10 days passes, and no such proof is entered, the video will be reinstated:**
+
+I have a good faith belief that the content is transformative and fair
+in its use.
+
+1. The video is a recording of a screen, not a direct copy of the
+claimant's alleged work.
+
+2. The video is used to report on a significant news story.
+
+3. The Claimant is mentioning me by name throughout the last fifth half
+of the video.
+
+As a concession to the Claimant, per his request, I have added credit to
+the description.
+
+Submitted under penalty of perjury.
+  
+Joshua Moon
+Mad at the Internet, LLC
+<private info redacted>
