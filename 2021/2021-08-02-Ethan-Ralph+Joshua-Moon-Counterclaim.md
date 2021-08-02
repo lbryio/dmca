@@ -25,7 +25,7 @@ ETHAN RALPH
 ***
 
 
-**Counter claim submitted on 8/2/2021. Claimant notified and will have 10 days to produce court documents that re-affrims their position. If 10 days passes, and no such proof is entered, the video will be reinstated:**
+**Counter claim submitted on 8/2/2021. Claimant notified and will have 10 days to produce court documents that re-affrims their position. If 10 business days passes, and no such proof is entered, the video will be reinstated:**
 
 I have a good faith belief that the content is transformative and fair
 in its use.
