@@ -20,7 +20,7 @@ Thank you.
 
 ETHAN RALPH
 
-<private info redacted>
+< private info redacted >
   
 ***
 
@@ -44,5 +44,7 @@ the description.
 Submitted under penalty of perjury.
   
 Joshua Moon
+
 Mad at the Internet, LLC
-<private info redacted>
+
+< private info redacted >
