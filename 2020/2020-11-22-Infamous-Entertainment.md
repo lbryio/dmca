@@ -2,6 +2,15 @@
 Dear Provider,
 
 Please remove the following unauthorized links from you service:
+- https://odysee.com/@DisclosureLibrary:2/TheDeepRigMovie:5
+- https://odysee.com/@greatawakening:c/deeprig:6
+- https://odysee.com/@marcelv74:1/Watch-the-Deep-Rig-movie-for-free!:7
+- https://odysee.com/@marcelv74:1/Watch-the-Deep-Rig-movie-for-free!:7
+- https://odysee.com/@QSynesthesia:7/The-Deep-Rig-(2021):a
+- https://odysee.com/@DisclosureLibrary:2/TheDeepRigMovie:5
+- https://odysee.com/@Slopdidelybop:7/Movie-----The-Deep-Rig-Movie-de03cc5c-d262-4570-a35c-a233da3824f6:2
+- https://odysee.com/@GeneralFreedom:5/2021-08-03_22-02-15:8
+- https://odysee.com/@SonOfEnos:d/the-deep-rig-movie:5
 - https://odysee.com/@DemAndy_Austria:c/A-Thousand-Pieces---A-True-Conspiracy-Documentary-1:0
 - https://odysee.com/@People4Liberty:e/The-Deep-Rig-FULL-Movie:8
 - https://odysee.com/@Sparky6461:e/Deep-Rig-Cut:9 
