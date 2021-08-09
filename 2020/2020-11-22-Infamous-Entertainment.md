@@ -2,6 +2,12 @@
 Dear Provider,
 
 Please remove the following unauthorized links from you service:
+-
+- https://odysee.com/@StoneyStoneUCMTSUN:a/The-Deep-Rig-documentary-2021:7
+- https://odysee.com/@pgbiener:7/deeprigmovie:0
+- https://odysee.com/@DisclosureLibrary:2/THE-DEEP-RIG!-BLOCKED-BY-BITCHUTE-RUMBLE-AND-ODYSEE!-TRUMP-WON!:9
+- https://odysee.com/@2020ElectionFraud:1/the-deep-rig:9
+- https://odysee.com/@2020ElectionFraud:1/the-deep-rig:9
 - https://odysee.com/@DisclosureLibrary:2/TheDeepRigMovie:5
 - https://odysee.com/@greatawakening:c/deeprig:6
 - https://odysee.com/@marcelv74:1/Watch-the-Deep-Rig-movie-for-free!:7
