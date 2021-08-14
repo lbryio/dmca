@@ -12,10 +12,10 @@ Authorization From Copyright Holder To Request Removal: Provided Upon Request
 
 I believe that the following materials are infringing:
 
-https://odysee.com/@GhostXGaming%3A3/%E3%80%90%E6%98%8E%E6%97%A5%E6%96%B9%E8%88%9Fx%E9%9F%B3%E5%BE%8B%E8%81%AF%E8%A6%BA%E3%80%91infected%3Ae
-https://odysee.com/@GhostXGaming%3A3/%E3%80%90%E6%98%8E%E6%97%A5%E6%96%B9%E8%88%9Fx%E9%9F%B3%E5%BE%8B%E8%81%AF%E8%A6%BA%E3%80%91monster%3A5
-https://odysee.com/@GhostXGaming%3A3/%E3%80%90%E6%98%8E%E6%97%A5%E6%96%B9%E8%88%9Fx%E9%9F%B3%E5%BE%8B%E8%81%AF%E8%A6%BA%E3%80%91monster%3A5?sunset=lbrytv
-https://odysee.com/@GhostXGaming%3A3/Unbecoming-Starset-%E9%9F%B3%E5%BE%8B%E8%81%AF%E8%A6%BA%E7%8D%BB%E5%94%B1%E7%89%88%3A9
+- https://odysee.com/@GhostXGaming%3A3/%E3%80%90%E6%98%8E%E6%97%A5%E6%96%B9%E8%88%9Fx%E9%9F%B3%E5%BE%8B%E8%81%AF%E8%A6%BA%E3%80%91infected%3Ae
+- https://odysee.com/@GhostXGaming%3A3/%E3%80%90%E6%98%8E%E6%97%A5%E6%96%B9%E8%88%9Fx%E9%9F%B3%E5%BE%8B%E8%81%AF%E8%A6%BA%E3%80%91monster%3A5
+- https://odysee.com/@GhostXGaming%3A3/%E3%80%90%E6%98%8E%E6%97%A5%E6%96%B9%E8%88%9Fx%E9%9F%B3%E5%BE%8B%E8%81%AF%E8%A6%BA%E3%80%91monster%3A5?sunset=lbrytv
+- https://odysee.com/@GhostXGaming%3A3/Unbecoming-Starset-%E9%9F%B3%E5%BE%8B%E8%81%AF%E8%A6%BA%E7%8D%BB%E5%94%B1%E7%89%88%3A9
 
 I have a good faith belief that use of the materials in the manner complained of is not authorized by the copyright owner, its agent, or the law. I demand that odysee.com acts expeditiously to remove or disable access to the material claimed to be infringing.
 
