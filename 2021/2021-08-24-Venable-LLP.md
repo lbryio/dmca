@@ -9,7 +9,7 @@ The following posts are infringing our client's trademarks:
 - https://odysee.com/@TheGatalog-Accessories:e/MomsDemandFullAuto3DPrintableSwiftLink:3
 - https://odysee.com/@xYeezySZN:f/MomsDemandFirebolt:7
 - https://odysee.com/@xYeezySZN:f/EverytownFireboltMagwell:f
-
+- https://odysee.com/@TheGatalog-PrintableMagazines:6/everytown-cmmg-22lr-mag-25round:f
 All information provided in this notice is accurate. We kindly request that you remove the infringing posts from your marketplace.
 
 Should you require additional information, we are available to speak with you further via telephone or email. Thank you in advance for your kind assistance.
