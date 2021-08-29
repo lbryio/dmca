@@ -24,6 +24,10 @@ What was located as infringing content:
 
 --------------------------------------------------
 - https://lbry.tv/@MaChaineTest2:4/Autant-En-Emporte-Le-Vent-1939-:9
+- https://lbry.tv/@BannedYouTubeVideos:4/IN-THE-SAME-BREATH:6
+- https://lbry.tv/@Zoowoman:d/Hairspray:4 
+- https://lbry.tv/@AnimesLibres:3/Animacion-Liga-de-la-Justicia-Oscura-Guerra-Apokolips---2020:4
+- https://odysee.com/@AnimesLibres:3/Animacion-Liga-de-la-Justicia-Oscura-Guerra-Apokolips---2020:4?&sunset=lbrytv
 - https://lbry.tv/@TheSpoiler:f/BatmanTheLongHalloweenPartTwo:4
 - https://lbry.tv/@ArchiveSea:3/CurbYourEnthusiasm1999HBOspecial:b
 - https://lbry.tv/@JuegoDeTronoslatino:8/Juego-De-Tronos-T1-C01:2 
