@@ -21,3 +21,33 @@ Best regards,
 Erin Galloway
 
 Counter claim received on 8/31/2021. Claimant will be notified via email. If no court order is received, content will be restored on Sept 15, 2021
+
+Dear LBRY,
+This office has the pleasure of representing The Gatalog, Gatalog Foundation,
+et al in all matters relating to intellectual property. As such, this office acts on behalf
+of the Gatalog and its members.
+This office is in receipt of the copy of the letter sent to you by Mme Galloway,
+representative of EVERYTOWN FOR GUN SAFETY ACTION FUND, INC, alleging
+violations of intellectual property rights (the “Everytown notice”).
+This letter is intended as a Counter-Notification as authorized by 17
+U.S.C. § 512(g). My client has a good faith belief that the material which was
+removed or disabled as a result of the Everytown notice was as a result of mistake or
+misidentification of the material. I therefore request that the material be replaced
+and/or no long be disabled.
+The content wrongfully removed was previously found at the following
+addresses:
+
+• https://odysee.com/@TheGatalog-
+Accessories:e/MomsDemandFullAuto3DPrintableSwiftLink:3
+
+• https://odysee.com/@xYeezySZN:f/MomsDemandFirebolt:7
+• https://odysee.com/@xYeezySZN:f/EverytownFireboltMagwell:f
+
+• https://odysee.com/@TheGatalog-PrintableMagazines:6/everytown-cmmg-
+22lr-mag-25round:f
+
+This office is of the position that it is manifestly clear that the above referenced
+materials cannot reasonably be understood to be violative of Everytown’s intellectual
+property, that the works are manifestly distinct from any and all Everytown marks,
+that the works are protected parody—to any extent they are similar—and that the
+Everytown notice was issued fraudulently.
