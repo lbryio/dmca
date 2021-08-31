@@ -19,3 +19,5 @@ Best regards,
 ![Sign](https://d33v4339jhl8k0.cloudfront.net/inline/67942/142e4e5553c9f3422968d1d88a5492c9d9908145/4f3da2ae30f0eb4cfde651a11d26b678b8d78f40/image004.jpg)
 
 Erin Galloway
+
+Counter claim received on 8/31/2021. Claimant will be notified via email. If no court order is received, content will be restored on Sept 15, 2021
