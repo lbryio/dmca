@@ -36,6 +36,8 @@ What was located as infringing content:
 - --------------------------------------------------
 
 - https://lbry.tv/@LBRYrandom:a/cops-s32e09-720p:0
+- https://lbry.tv/@bestMMAUFC:3/Best_fight_mma:b
+- https://odysee.com/@bestMMAUFC:3/Best_fight_mma:b
 - https://lbry.tv/@LBRYrandom:a/cops-s32e08-720p:a 
 - https://lbry.tv/@LBRYrandom:a/cops-s32e12-720p:c
 
