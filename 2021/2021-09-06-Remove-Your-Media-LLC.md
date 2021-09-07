@@ -24,6 +24,21 @@ Please act expeditiously to remove or disable access to the infringing material 
 listed as follows - the images, videos and/or download links at the following URL(s):
 
 https://odysee.com/@Narutoshippudenserie:2
+- https://odysee.com/DemonSlayer16:4
+- https://odysee.com/DemonSlayer14:2
+- https://odysee.com/DemonSlayer08:9
+- https://odysee.com/DemonSlayer07:d
+- https://odysee.com/DemonSlayer06:f
+- https://odysee.com/DemonSlayer05:a
+- https://odysee.com/DemonSlayer04:6
+- https://odysee.com/DemonSlayer03:0
+- https://odysee.com/DemonSlayer01:8
+- https://odysee.com/@Leroy_Genkins:b/Demon.Slayer.S01E01.480p.Dual-Audio.x264-KatmovieHD:7
+- https://odysee.com/everythingishere:8
+- https://odysee.com/@SeriesEnEspa%C3%B1ol:3/3118_1:9
+- https://odysee.com/@blackgx9413:4/--demon-slayer-ep-1-%EF%BC%88%E9%AC%BC%E7%81%AD%E4%B9%8B%E5%88%83%E7%AC%AC%E4%B8%80%E9%9B%86):9
+- https://odysee.com/@Criptolover:8/ATTACKONTITANcap2subespañol:7
+- https://odysee.com/@Criptolover:8/ATTACKONTITANcap3:d
 
 Truthfully,
 /S/: Eric Green
