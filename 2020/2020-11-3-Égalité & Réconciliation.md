@@ -18,3 +18,4 @@ With Regards,
 Secrétaire national d'Égalité & Réconciliation
 
 lbry://@ReVibe#3/Le-Grand-Reset,-ou-le-grand-m\u00e9nage-_--3-Great-Reset---\u00c9cologie.mp4#0
+  https://odysee.com/@romgab94:6/le-11-septembre-et-le-grand-jeu-israelien-720p:0
