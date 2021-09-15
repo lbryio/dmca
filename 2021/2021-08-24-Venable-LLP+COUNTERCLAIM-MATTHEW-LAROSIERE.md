@@ -51,3 +51,5 @@ materials cannot reasonably be understood to be violative of Everytown’s intel
 property, that the works are manifestly distinct from any and all Everytown marks,
 that the works are protected parody—to any extent they are similar—and that the
 Everytown notice was issued fraudulently.
+
+9/15/2021 - no counter claim received, content will be back up shortly. 
