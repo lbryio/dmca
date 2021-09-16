@@ -24,6 +24,10 @@ What was located as infringing content:
 
 --------------------------------------------------
 - https://lbry.tv/@MaChaineTest2:4/Autant-En-Emporte-Le-Vent-1939-:9
+- https://odysee.com/@Pelisymas:c/Juego-de-Tronos-1x03--Mega-Descargas-:0?&sunset=lbrytv
+- https://odysee.com/@QQFILMES:b?view=about
+  
+- https://lbry.tv/@Pelisymas:c/Juego-de-Tronos-1x03--Mega-Descargas-:0 
 - https://lbry.tv/@BannedYouTubeVideos:4/IN-THE-SAME-BREATH:6
 - https://lbry.tv/@Zoowoman:d/Hairspray:4 
 - https://lbry.tv/@AnimesLibres:3/Animacion-Liga-de-la-Justicia-Oscura-Guerra-Apokolips---2020:4
