@@ -23,8 +23,6 @@ Thank you.
 Jonas Schneiter
 
 Nous Sàrl
-Av. Florimont 4
-1006 Lausanne
-jonas@nous.swiss
+A<personal information redacted>
 
 Jonas Schneiter
