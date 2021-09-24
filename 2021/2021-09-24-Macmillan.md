@@ -21,9 +21,9 @@ Copyright owner(s) or exclusive licensee:
 Macmillan
 
 2. Copyright infringing material or activity found at the following location(s):
-https://odysee.com/@AudioBooksBeyond:1/Necroscope-III---The-Source-:6?lid=a43e2b1f9594c07f1700cffadaa707e4c65c62d0
-https://odysee.com/@AudioBooksBeyond:1/Necroscope-(Unabridged):a?lid=a43e2b1f9594c07f1700cffadaa707e4c65c62d0
-https://odysee.com/@AudioBooksBeyond:1/Necroscope-II-Vamphyri!-Necroscope-Series,-Book-2-(Unabridged):6?lid=a43e2b1f9594c07f1700cffadaa707e4c65c62d0
+- tps://odysee.com/@AudioBooksBeyond:1/Necroscope-III---The-Source-:6?lid=a43e2b1f9594c07f1700cffadaa707e4c65c62d0
+- tps://odysee.com/@AudioBooksBeyond:1/Necroscope-(Unabridged):a?lid=a43e2b1f9594c07f1700cffadaa707e4c65c62d0
+- tps://odysee.com/@AudioBooksBeyond:1/Necroscope-II-Vamphyri!-Necroscope-Series,-Book-2-(Unabridged):6?lid=a43e2b1f9594c07f1700cffadaa707e4c65c62d0
 
 The above copyright work(s) is being made available for copying, through downloading, at the above location without authorization from the copyright owner or exclusive licensee.
 
