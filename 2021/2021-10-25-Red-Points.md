@@ -19,6 +19,9 @@ Phone: +34 934 189 433
 - https://odysee.com/@KillTeamHungary:9/Cherubs-of-Hemoglobin-ep02:e
 - https://odysee.com/@KillTeamHungary:9/Cherubs-of-Haemorrhage-01:9
 - https://odysee.com/@KillTeamHungary:9/Cherubs-4:f
+- https://odysee.com/@KillTeamHungary:9/Angels5:0
+- https://odysee.com/@KillTeamHungary:9/cherubs-of-hemoglobin-ep.-1.-quarantine:9
+-  https://odysee.com/@KillTeamHungary:9/cherubs-of-hemoglobin-ep.-2.-quarantine:0
 - https://odysee.com/@KillTeamHungary:9/Cherubs-of-Haemorrhage-01:9
 - https://odysee.com/@Animes_VOSTFR:8/Akira:4
 - https://odysee.com/@MANGACOMPLET:2/AKIRA-VF-(360p):9
