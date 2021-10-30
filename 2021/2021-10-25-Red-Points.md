@@ -25,6 +25,7 @@ Phone: +34 934 189 433
 - https://odysee.com/@KillTeamHungary:9/Cherubs-of-Haemorrhage-01:9
 - https://odysee.com/@Animes_VOSTFR:8/Akira:4
 - https://odysee.com/@MANGACOMPLET:2/AKIRA-VF-(360p):9
+- https://odysee.com/@SectorDescargas:3/descargar-nitro-pro-11-full-espa-ol:f
 
 3) Our client believes that the content above is infringing upon their copyrighted work(s), as listed below:
 
