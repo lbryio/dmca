@@ -16,6 +16,17 @@ We noticed that the URL reported bellow display and make available to the public
 - https://odysee.com/@VIP:f/manuel-lu-s-goucha-oferece-35-mil-euros:2​
 - https://odysee.com/@VIP:f/margarida-tem-uma-doen-a-cr-nica:7
 - https://odysee.com/@VIP:f/pedr-g-o-grande-reportagem-da-tvi:3
+- https://odysee.com/@gesticook:c/press-wine-in-azores-tvi-jornal-da-uma:e​
+- https://odysee.com/@gesticook:c/jornal-da-uma-tvi-11.03.2018-das-origens:4
+- https://odysee.com/@gesticook:c/press-meio-tvi-jornal-das-8-feira-do:7
+- https://odysee.com/@gesticook:c/press-meio-tvi-di%C3%A1rio-da-manh%C3%A3-feira:2
+- https://odysee.com/@JustSayNoToMainstream:5/Entrevista-Andr%C3%A9-Ventura-TVI24-(COMPLETO):1
+- https://odysee.com/Entrevista-a-Jos%C3%A9-S%C3%B3crates---14-de-Abril-de-2021-na-TVI:8
+- https://odysee.com/@sairdecasa:1/Teatro-Jos%C3%A9-Alberto-Carvalho-TVI-Mar%C3%A7o-2020:a
+- https://odysee.com/@TheGuzman:5/empregado-de-restaurante-a-teia-tvi-2019:4
+- https://odysee.com/@Apodrecetuga.blog:2/minist%C3%A9rio-da-educa%C3%A7%C3%A3o-vai-responder:c
+- https://odysee.com/@Apodrecetuga.blog:2/m%C3%A9dicos-sabotam-sns-para-obrigar:e
+- https://odysee.com/@DireitaTV:a/entrevista-a-andr%C3%A9-ventura-na-tvi24:6
 
 ​4. Address: Rua Mário Castelhano, 40 - Queluz de Baixo
 <personal information reducted>
