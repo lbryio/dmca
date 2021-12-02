@@ -31,6 +31,7 @@ Infringing content:
 - https://lbry.tv/@channelbuzz:c/Watch-Army-i:0
 - https://lbry.tv/@entretenimiento:3/1-dejavu:0
 - https://lbry.tv/@PELICULASESTRENONEOR:1/PROJECT-POWER:3
+- https://odysee.com/@Sebastheking:3/eljuegodelcalamar7:c
 
 Project Power
 
