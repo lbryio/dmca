@@ -18,6 +18,11 @@ One by One, a Feature Film, published in 2013.
 https://onebyonethemovie.wixsite.com/website
 
 3. The infringing material is located at the following URLs:
+- https://odysee.com/@MOVIE:88?view=about
+- https://odysee.com/@Globalistexposure:8/OnebyOne:70
+- https://odysee.com/@Thy_Hesitant_One:7/Onebyone:e5
+- https://odysee.com/@QuantumRhinoBeyond:e/One-By-One-(2014):2
+- https://odysee.com/@Freedom:d/One-By-One-2014-Rik-Mayall-Last-Film:3
 - https://lbry.tv/@Health_and_Freedom:1/One-By-One-2014:2
 - https://odysee.com/@heidiTTFN:8/1-by-1-rik-mayalls-brilliant-final:c
 - https://odysee.com/@SPZjulienINFO:3/One-By-One-2014Rik-Mayall:b
