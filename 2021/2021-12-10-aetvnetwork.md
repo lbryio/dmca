@@ -29,5 +29,25 @@ agent@aetvnetwork.copyright-notice.com
 Pawn Stars
 
 
-https://lbry.tv/@PrincessLuna:d/Pawn-Stars-S01E01:3
-https://cdn.lbryplayer.xyz/api/v4/streams/free/Pawn-Stars-S01E01/3e268648ea0dbd572bef719f62c75ebc0909c95d/1f4ef2
+- https://lbry.tv/@PrincessLuna:d/Pawn-Stars-S01E01:3
+- https://cdn.lbryplayer.xyz/api/v4/streams/free/Pawn-Stars-S01E01/3e268648ea0dbd572bef719f62c75ebc0909c95d/1f4ef2
+ 
+Alone
+
+- https://lbry.tv/@bushcraftTV:2/alone-s01e02:4
+- https://cdn.lbryplayer.xyz/api/v4/streams/free/alone-s01e02/4ae9b0ae4a9590ba43fe19d3f1abfcdaddf8ed8c/852258
+
+Alone
+
+- https://lbry.tv/@bushcraftTV:2/alone-s05e11-season-5:5
+- https://cdn.lbryplayer.xyz/api/v4/streams/free/alone-s05e11-season-5/565123daf4a60b9ba6d8fd247399a925afb6cd96/7585b2
+
+Alone
+
+- https://lbry.tv/@bushcraftTV:2/alone-s06e07:d
+- https://cdn.lbryplayer.xyz/api/v4/streams/free/alone-s06e07/dcdb634b3c6287c58d188b9af50ae44fef70e2e7/486fba
+
+Pawn Stars
+
+- https://lbry.tv/@PrincessLuna:d/Pawn-Stars---S04E17---Evel-Genius:9
+- https://cdn.lbryplayer.xyz/api/v4/streams/free/Pawn-Stars---S04E17---Evel-Genius/9941913dfb7a386170ab129683de636f21e52d39/eb2eb1
