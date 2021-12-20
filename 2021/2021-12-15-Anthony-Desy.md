@@ -21,6 +21,8 @@ and
 
 3. https://odysee.com/@Scound2. relStudios:f/rhywynexposed:0
 
+4. https://odysee.com/@Ribelo-Infanoj:5/L-association-WANTED-PEDO-est-un-pi%C3%A8ge-%C3%A0-victimes-V2:0
+
 the user "ScoundrelStudios" aka "Van Owsley" aka "Darrin Peloquin" uses a picture of me taken from my facebook without my permission to defame and slanderme. Along with doxxing my home address here in the video. Please remove this content and the channel because he is using this website to harass me and others.
 
 This letter is official notification under Section 512(c) of the Digital Millennium Copyright Act ("DMCA"), and I seek the removal of the aforementioned infringing material from your servers. I request that you immediately notify the infringer of this notice and inform them of their duty to remove the infringing material immediately, and notify them to cease any further posting of infringing material to your server in the future.
