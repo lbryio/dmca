@@ -36,10 +36,28 @@ What was located as infringing content:
 - --------------------------------------------------
 
 - https://lbry.tv/@LBRYrandom:a/cops-s32e09-720p:0
+- https://odysee.com/@yabba:e/A-New-COVID-Variant-Discovered--SOUTH-PARK-POST-COVID_1080p:2?&sunset=lbrytv
+- https://lbry.tv/@bushcraftTV:2/alone-s01e11:6
+- https://odysee.com/@bushcraftTV:2/alone-s01e02:4?&sunset=lbrytv
 - https://lbry.tv/@bestMMAUFC:3/Best_fight_mma:b
 - https://odysee.com/@bestMMAUFC:3/Best_fight_mma:b
 - https://lbry.tv/@LBRYrandom:a/cops-s32e08-720p:a 
 - https://lbry.tv/@LBRYrandom:a/cops-s32e12-720p:c
+
+
+Ren and Stimpy
+
+https://lbry.tv/@RichardTentacles:1/Ren-et-Stimpy-pilote:5
+
+
+South Park: Post Covid
+
+https://lbry.tv/@ThirdEye:b/post-covid-SouthPark:7
+
+https://lbry.tv/@Sasquatch:6/aabbllllllllllllljijij:5
+
+https://lbry.tv/@januszkowalskii1979:e/New-CONvid-1984-Variant-Discovered:7
+
 
 BEAVIS & BUTT-HEAD
 
