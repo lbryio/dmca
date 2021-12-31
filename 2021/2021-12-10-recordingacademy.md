@@ -30,4 +30,5 @@ What was located as infringing content:
 
 Latin Grammy Awards 2021
 
-https://lbry.tv/@eldiamantejoel:9/camilo-en-los-latin-grammy-2021-el-show:4
+- https://lbry.tv/@eldiamantejoel:9/camilo-en-los-latin-grammy-2021-el-show:4
+- https://odysee.com/@eldiamantejoel:9/juan-luis-guerra-gana-latin-grammy-por:c?&sunset=lbrytv
