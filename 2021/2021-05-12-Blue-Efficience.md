@@ -50,7 +50,12 @@ the copyrighted work.
 - https://odysee.com/@CINECINEMAS:2/Mandibules-en-streaming---Film-streaming-complet-vf-hd-gratuit-sans-pub-2021.mp4:0
 - https://odysee.com/The-Vault-(Subtitulada-al-Espa%C3%B1ol):0
 - https://odysee.com/@stpierrs:f/Watch-The-Vault-(2021)-(2021)-Free-On-123Movies:9
--  https://odysee.com/@HongKongMovie:2/%E9%98%BF%E9%A3%9E%E6%AD%A3%E4%BC%A0.Days.Of.Being.Wild.1990.BluRay.720p.x264.AC3:9
+- https://odysee.com/@HongKongMovie:2/%E9%98%BF%E9%A3%9E%E6%AD%A3%E4%BC%A0.Days.Of.Being.Wild.1990.BluRay.720p.x264.AC3:9
+- https://odysee.com/@ArquivoEsp%C3%ADrita:0/NLAR:1
+- https://odysee.com/@SpielfilmKunst:d/Astral-City:b
+- https://odysee.com/Astral-City-A-Spiritual-Journey-(Subtitulada-al-Espa%C3%B1ol):4
+- https://odysee.com/@Lav%C3%A9rit%C3%A9partag%C3%A9e:4/nossolar:5
+
 
 
 TRUSTED USER SUBMISSION
