@@ -5,6 +5,7 @@ A video was copied onto your servers without permission. The original Video, to 
 The unauthorized and infringing copy can be found at: https://www.britbong.com/
 
 Infringing content: https://odysee.com/@EmptyHero:c/Tears-of-a-Manlet:9
+- https://odysee.com/It-Ain't-Safe-In-2022-Gamers-Are-Virtually-Sexual-Assaulting:6 
 
 This letter is official notification under Section 512(c) of the Digital Millennium Copyright Act ("DMCA"), and I seek the removal of the aforementioned infringing material from your servers. I request that you immediately notify the infringer of this notice and inform them of their duty to remove the infringing material immediately, and notify them to cease any further posting of infringing material to your server in the future.
 
