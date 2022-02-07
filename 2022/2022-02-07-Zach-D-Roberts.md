@@ -20,5 +20,7 @@ https://www.splcenter.org/hatewatch/2017/12/11/meet-patriot-front-neo-nazi-netwo
 Or watch this video of how they formed at the Unite the Right rally
 https://www.youtube.com/watch?v=CEQTeIVsTP0
 
+https://odysee.com/@PatriotFront:7/M4L-Preview:6
+
 Zach D Roberts
 <personal information redacted>
