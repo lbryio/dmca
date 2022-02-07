@@ -14,5 +14,5 @@ The infringing video did not apply proper license from MCSC and now we notify yo
 
 Thank you. 
 
-https://odysee.com/@RutersWinnieHub:6/%E3%80%90%E8%BE%B1%E5%8C%85%E3%80%91%E5%A5%BD%E6%97%A5%E5%AD%90%E3%80%8C%E4%BA%BA%E5%8A%9BVOCALOID%E3%80%8D:1
-https://odysee.com/@RutersWinnieHub:6/%E7%A7%A6%E5%9F%8E%E6%AC%A2%E8%BF%8E%E4%BD%A0:6 
+- https://odysee.com/@RutersWinnieHub:6/%E3%80%90%E8%BE%B1%E5%8C%85%E3%80%91%E5%A5%BD%E6%97%A5%E5%AD%90%E3%80%8C%E4%BA%BA%E5%8A%9BVOCALOID%E3%80%8D:1
+- https://odysee.com/@RutersWinnieHub:6/%E7%A7%A6%E5%9F%8E%E6%AC%A2%E8%BF%8E%E4%BD%A0:6 
