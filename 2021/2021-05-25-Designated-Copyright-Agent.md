@@ -67,6 +67,7 @@ We inform you that the addresses below are used to provide access to Sky Italy's
 - https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2019-5:9
 - https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2019-8:5
 - https://odysee.com/@DWEBTV:e/bruno-barbieri-4-hotel-hd-2019-3:7
+- https://odysee.com/@TeteRameau:8
 
 These addresses are sharing a content that Sky Italia is offering to its own subscribers. Therefore, the following notification is being provided to you, to the extent necessary to protect Sky's rights, also in the form of a DMCA notification. Evidence of the violation has been archived.
 
