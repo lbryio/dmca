@@ -1,18 +1,15 @@
 Remove Your Media® , LLC
-3308 Preston Rd Ste 350-157
-Plano, TX 75093-7453
-Ph: 866-541-5173
-E-mail: infringement@removeyourmedia.com
-2/20/2022 6:10:44 PM
-re: https://www.odysee.com ( IP 172.67.71.33 )
+<personal information redacted>
+
+https://www.odysee.com ( IP 172.67.71.33 )
 ELECTRONIC NOTICE OF COPYRIGHT INFRINGEMENT
 I, the undersigned, CERTIFY UNDER PENALTY OF PERJURY that I am an
 agent authorized to act on behalf of https://www.webtoon.com whose exclusive copyrights are being
 infringed. The information in this notice is accurate.
 Original Works & Copyright Holder(s):
+    
 WEBTOON Entertainment Inc
-5700 Wilshire Blvd Suite 220
-Los Angeles, California 90036
+<personal>
 The work in question is ©Copyright Korean Webtoon Soundtrack Music
 Tower of God
 
