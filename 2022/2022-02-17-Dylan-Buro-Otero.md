@@ -5,6 +5,7 @@ My name is Dylan Buro Otero and a video channel that your company hosts is infri
 The channel is: https://odysee.com/@TRAPPERIODISMO:5
 
 And the video that is in infringing my privacy rights is: https://odysee.com/@TRAPPERIODISMO:5/yxungdy970-ense-a-su-cara-y-pide-perd-n:5
+https://odysee.com/@TRAPPERIODISMO:5/lo-sucedido-con-yxungdy970-todo:f
 
 In that video my image is shown and my voice is heard without my consent from minute 0:01 until 6:50.
 
