@@ -73,6 +73,8 @@ https://lbry.tv/tloup2-2:2
 
 https://lbry.tv/tloup2-3:1
 https://odysee.com/@CoroNews:9/JFK-Revisited---Die-Wahrheit-%C3%BCber-den-Mord-an-John-F.-Kennedy:4
+- https://odysee.com/@Digital-Revolution-Network:a/DRN_DKU_JFK_Revisited_(2021):f 
+- https://odysee.com/@PLVSVLTRA:c/JFK-Revisited:d
 
 
 This content is as yet unreleased and has not been authorised for distribution.
