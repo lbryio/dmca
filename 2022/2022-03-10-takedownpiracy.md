@@ -14,6 +14,10 @@ Jacksonville, Florida
 
 The following works are the copyrighted property of All Elite Wrestling,
 LLC:
+- https://odysee.com/$/download/AEW.Revolution.2022.Pre.Show/ff868a174617ba7e71c3f7512cc7134335e1f0bc
+- https://odysee.com/$/download/AEW.Revolution.2022.PPV.720p/c58838a6ce0b30ed8763cdef9104e6c500d9f8b1
+- https://odysee.com/Aew.Rampage.2022.03.04:f
+https://odysee.com/Aew.Dynamite.2021.10.23.720P.Web.H264-Heel-1:8
 https://odysee.com/@Sigmum:b/AAW.2021.09.02.Destination.Chicago:e
 https://odysee.com/@Sigmum:b/AEW-Dynamite-2021-09-29-720p:5
 https://odysee.com/@Sigmum:b/AEW-Fyter-Fest-Buy-In.2019.720:3
