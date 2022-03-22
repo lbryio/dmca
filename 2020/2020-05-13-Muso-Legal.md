@@ -40,6 +40,10 @@ ALLEGEDLY INFRINGING ITEMS OR MATERIALS
 The infringing items are the works of: The Last of Us Part II - PS4.
 
 Infringing material that I demand be disabled or removed in consideration of the above:
+- odysee.com/@Documentary-Archive:0/JFK.Revisited.Through.The.Looking.Glass.20211:d
+- odysee.com/@Z-Project:b/JFK-Revisited-Die-Wahrheit-über-den-Mord-an-John-F.-Kennedy---1080p:6
+- odysee.com/@QuantumRhino:9/JFK-Revisited--Through-the-Looking-Glass--(2021):0
+
 
 https://lbry.tv/TLoUP2-LEAK:5
 
