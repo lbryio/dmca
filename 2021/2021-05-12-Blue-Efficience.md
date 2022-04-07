@@ -44,6 +44,15 @@ Hereunder is provided the list of URLs giving access to the copyrighted
 work.
 Each of these URLs loads a web page that allows to launch the download of
 the copyrighted work.
+- https://odysee.com/@jojodu54:c/NOSSO-LAR:e
+- https://odysee.com/Nosso-Lar---Notre-demeure:b
+- https://odysee.com/@malenaraf:4/NOSSO-LAR:9
+- https://odysee.com/@elby1984:0/Noso-Lar-Notre-Demeure-2010:8
+- https://odysee.com/@SujetD%C3%A9batMDDRadio:9/Noso-Lar-Notre-Demeure-2010-VF:5
+- https://odysee.com/@DeniseBlazy:9/NOSSOLAR:9
+- https://odysee.com/@Reveil:5f/nossolar:57
+- https://odysee.com/@AuraIndigo:e/Nosso-Lar---Notre-demeure:c
+- https://odysee.com/@d%C3%A9fenseur:9/notre-demeure-2:2
 - https://odysee.com/@QAmiral:9/Un-pays-qui-se-tient-sage-(2020):9
 - https://odysee.com/@fuiwdwutm:b/pol:5
 - https://odysee.com/Ma-vid%C3%A9o2:59c
