@@ -16,9 +16,9 @@ Phone: +34 934 189 433
 
 IP Address: 172.67.218.162
 Infringing URLs:
-https://lbry.tv/@TutorialesEspa%C3%B1ol:2/002-El-sistema-vocal-humano:3
-https://lbry.tv/@TutorialesEspa%C3%B1ol:2/001-Antes-de-empezar:5
-https://lbry.tv/@TutorialesEspa%C3%B1ol:2/003-Primero-Escucho:0
+- https://lbry.tv/@TutorialesEspa%C3%B1ol:2/002-El-sistema-vocal-humano:3
+- https://lbry.tv/@TutorialesEspa%C3%B1ol:2/001-Antes-de-empezar:5
+- https://lbry.tv/@TutorialesEspa%C3%B1ol:2/003-Primero-Escucho:0
 
 
 3) Our client believes that the content above is infringing upon their copyrighted work(s), as listed below:
