@@ -15,6 +15,8 @@ Jacksonville, Florida
 The following works are the copyrighted property of All Elite Wrestling,
 LLC:
 - https://odysee.com/@Sigmum1:a/ROH.2022.04.01.Supercard.of.Honor:3
+- https://odysee.com/AEW.Dynamite.2022.04.13.720p.WEB.h264-HEEL:3
+- https://odysee.com/@PrincipalLayana:b/AEW.Dynamite.2022.04.13:4
 - https://odysee.com/@Sigmum1:a/ROH.Supercard.Of.Honor.2022.Preshow:5
 - https://odysee.com/$/download/AEW.Revolution.2022.Pre.Show/ff868a174617ba7e71c3f7512cc7134335e1f0bc
 - https://odysee.com/$/download/AEW.Revolution.2022.PPV.720p/c58838a6ce0b30ed8763cdef9104e6c500d9f8b1
