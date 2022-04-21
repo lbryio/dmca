@@ -20,7 +20,41 @@ Dear LBRY,
 
 We believe you value your work as much as we do. It has come to our attention that you infringed our copyright protected work by law : HOLD-UP the movie. This infringment consists of illegally broadcasting on your platform our movie, HOLD-UP as seen below (links):
 
+Les Secrets de Dom // @domdesavoie
+https://odysee.com/@domdesavoie:d/Hold-Out:e
+- mes videos // @bonsang
+https://odysee.com/@bonsang:f/(2)-Hold-Out:e
+- Conspiration - Chercheur de vérité - News // @FlowerPower2
+https://odysee.com/@FlowerPower2:e/Hold-Out-Film-Complet:5
+- Sentient HAL 💚 // @SentientHAL
+https://odysee.com/@SentientHAL:6/HO2022:0
+- Vivre Autrement // @vivreautrement
+https://odysee.com/@vivreautrement:6/Hold-Out:7a
+- OnNeNousDitPasTout // @Roms17
+https://odysee.com/@Roms17:d/HOLD-OUT---Film-(2022):8
 
+  - Ambre // @Ambre
+https://odysee.com/@Ambre:1/M-et-le-3ème-secret---Pierre-Barnérias:a
+- LIBERTAS // @Cincinnatus63
+https://odysee.com/@Cincinnatus63:e/M-et-le-3ème-secret---Le-Film-Documentaire:0
+- OnNeNousDitPasTout // @Roms17
+https://odysee.com/@Roms17:d/Met-le-3ème-secret---Documentaire-(2014)-de-Pierre-Barnérias:6
+- Mars Channel // @Mars_001
+https://odysee.com/@Mars_001:1/M-Et-Le-3ème-Secret:7f
+- Liberté, vérité et bon sens // @sundance
+https://odysee.com/@sundance:1/-RARE-M.et.le.3e.Secret.DVDRip.x264.-GUSzen_x264:6
+- La Vérité Vraie (Documentaires et Films) // @LaVéritéVraieDocumentairesetFilms
+https://odysee.com/@LaVéritéVraieDocumentairesetFilms:2/M-et-le-3ème-secret.-(-Le-Film-):e
+- Anonyme
+https://odysee.com/M_et_le_3eme_secret:8
+- Veni Vidi Vici // @jolprolo
+https://odysee.com/@jolprolo:8/M-et-le-3ème-secret---Pierre-Barnérias:9
+- jp // @jp
+https://odysee.com/@jp:18/M-et-le-3eme-SecretCONVERTIT2:6
+- Shitnews // @Shitnews
+https://odysee.com/@Shitnews:6/long-term-determined-hare:8
+- Les Secrets de Dom // @domdesavoie
+https://odysee.com/@domdesavoie:d/M.-Le-Dernier-Secret:7
 
 - https://lbry.tv/@Patriotfraf:a/waiting-flaky-clam:4
 
@@ -93,6 +127,7 @@ We believe you value your work as much as we do. It has come to our attention th
 - https://odysee.com/@Coklico:d/hold-up-1:8
 
 - https://odysee.com/@TNews:0/Hold-Up---film-documentaire-:f
+ 
 
 
 
