@@ -11,12 +11,12 @@ Under that statute, you are required, as a service provider, to remove or disabl
 The content that is being infringed is piracy of the film "TRANCE: the Cathy O'Brien story"
 
 The infringing copy of this content is located at:
-https://odysee.com/Trance-Cathy-OBrien-Story-2022:35203e1e5b11d74f5a9aaeb9d8759faf5e5a08f7?src=embed
-https://odysee.com/@FwapUK:1/Trance-Cathy-OBrien-Story-2022:3
-https://odysee.com/@ReluctantMystic:7/TR4NCE-the_Cathy_0Bri3n_story2022:1
-https://odysee.com/@HiddenFromView:4/Trance---The-Cathy-OBrien-Story-(2022):f
-https://odysee.com/@HumanitysVault:a/Trance---The-Cathy-O'Brien-Story---2022:6
-https://odysee.com/@TruthOnlyMedia:8/Trance---The-Cathy-OBrien-Story-2022:1
+- https://odysee.com/Trance-Cathy-OBrien-Story-2022:35203e1e5b11d74f5a9aaeb9d8759faf5e5a08f7?src=embed
+- https://odysee.com/@FwapUK:1/Trance-Cathy-OBrien-Story-2022:3
+- https://odysee.com/@ReluctantMystic:7/TR4NCE-the_Cathy_0Bri3n_story2022:1
+- https://odysee.com/@HiddenFromView:4/Trance---The-Cathy-OBrien-Story-(2022):f
+- https://odysee.com/@HumanitysVault:a/Trance---The-Cathy-O'Brien-Story---2022:6
+- https://odysee.com/@TruthOnlyMedia:8/Trance---The-Cathy-OBrien-Story-2022:1
 
 The use of the copyrighted materials described above are not authorized by the copyright owner, its agent or the law. Under penalty of perjury I certify that the information contained in this notification is both true and accurate, and that I am the owner of the copyright involved.
 
