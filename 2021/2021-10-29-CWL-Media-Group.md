@@ -6,6 +6,7 @@ An article was copied onto your servers without permission. The original Video, 
  The unauthorized and infringing copy's can be found at:
  
 - https://odysee.com/@OrvosokaTisztanlatasert:a/Ernst-Wolff:0
+- https://odysee.com/@QuerGedacht:2/Ernst-Wolff-WEFF:a
 - https://odysee.com/@RealCORONA:9/Covid-19-betrug:3
 - https://odysee.com/@EspritQritique:2/Conf%C3%A9rence-de-Ernst-Wolff-au-WEFF-By-Esprit-Qritique:d
 - https://odysee.com/@LeLibrePenseur.org:2/d%C3%A9possession-totale-Ernst-wolff-LLP:e
