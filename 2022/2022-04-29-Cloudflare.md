@@ -13,13 +13,13 @@ Reporter's Address: PO Box 75505, London, London, GB
 
 Reported URLs:
 
-https://odysee.com/@eswilmor:4/Uncharted-Fuera-del-mapa-2022-hd-latino:9
-https://odysee.com/@PeliculasAudioLatino:8/Uncharted2022:4
-https://odysee.com/Uncharted---Fora-do-Mapa-2022-1080p-FULL-HD-BluRay-DUAL-5.1:f
-https://odysee.com/@MoviesD0tCom:b/Uncharted.2022:a
-https://odysee.com/@FafaLagainz:2/UnchartedVF:1
-https://odysee.com/@FILM-COMPLET-FR:f/Uncharted-(2022)-hd-fr:d
-https://odysee.com/@PlanetaWarez:2/Uncharted.Fuera.del.mapa.(2022).WEB-DL.1080p.Latino:6
+- https://odysee.com/@eswilmor:4/Uncharted-Fuera-del-mapa-2022-hd-latino:9
+- https://odysee.com/@PeliculasAudioLatino:8/Uncharted2022:4
+- https://odysee.com/Uncharted---Fora-do-Mapa-2022-1080p-FULL-HD-BluRay-DUAL-5.1:f
+- https://odysee.com/@MoviesD0tCom:b/Uncharted.2022:a
+- https://odysee.com/@FafaLagainz:2/UnchartedVF:1
+- https://odysee.com/@FILM-COMPLET-FR:f/Uncharted-(2022)-hd-fr:d
+- https://odysee.com/@PlanetaWarez:2/Uncharted.Fuera.del.mapa.(2022).WEB-DL.1080p.Latino:6
 
 Original Work: The copyrighted work of Uncharted is under license for distribution by Columbia Pictures Industries, Inc.. Any unauthorised distribution is strictly prohibited. https://www.imdb.com/title/tt1464335
 Comments:
