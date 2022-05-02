@@ -15,6 +15,8 @@ Jacksonville, Florida
 The following works are the copyrighted property of All Elite Wrestling,
 LLC:
 - https://odysee.com/@Sigmum1:a/ROH.2022.04.01.Supercard.of.Honor:3
+- https://odysee.com/AEW.Rampage.2022.04.22.720p.WEB.h264-HEEL---Copia:6
+- https://odysee.com/AEW.Dynamite.2022.04.27.720p.WEB.h264-HEEL:d
 - https://odysee.com/AEW.Dynamite.2022.04.13.720p.WEB.h264-HEEL:3
 - https://odysee.com/@PrincipalLayana:b/AEW.Dynamite.2022.04.13:4
 - https://odysee.com/@Sigmum1:a/ROH.Supercard.Of.Honor.2022.Preshow:5
@@ -25,57 +27,57 @@ LLC:
 - https://odysee.com/@Sigmum1:a/AEW.Dynamite.2022.03.16.720p:1
 - https://odysee.com/@Sigmum1:a/AEW.Rampage.2022.03.11.720p:1
 - https://odysee.com/Aew.Dynamite.2021.10.23.720P.Web.H264-Heel-1:8
-https://odysee.com/@Sigmum:b/AAW.2021.09.02.Destination.Chicago:e
-https://odysee.com/@Sigmum:b/AEW-Dynamite-2021-09-29-720p:5
-https://odysee.com/@Sigmum:b/AEW-Fyter-Fest-Buy-In.2019.720:3
-https://odysee.com/@Sigmum:b/AEW-REVOLUTION-THE-BUY-IN:6
-https://odysee.com/@Sigmum:b/AEW.2019.06.29.Fyter.Fest.2019.PPV.1080p:a
-https://odysee.com/@Sigmum:b/AEW.2019.08.31.All.Out.2019.PPV.1080p:e
-https://odysee.com/@Sigmum:b/AEW.2019.08.31.All.Out.2019.Pre.Show.1080p:d
-https://odysee.com/@Sigmum:b/AEW.2019.11.09.Full.Gear.BUYIN.720p:7
-https://odysee.com/@Sigmum:b/AEW.2019.11.09.Full.Gear.PPV.1080p:f
-https://odysee.com/@Sigmum:b/AEW.2020.02.29.Revolution.1080p:5
-https://odysee.com/@Sigmum:b/AEW.All.Out.2020.PPV.720p:3
-https://odysee.com/@Sigmum:b/AEW.Double.or.Nothing.2019.PPV_720:3
-https://odysee.com/@Sigmum:b/AEW.Double.Or.Nothing.2020.PPV.720p:6
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.01.01.720p:0
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.01.08.720p:d
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.01.15.720p:1
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.01.29.720p:f
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.02.05.720p:2
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.02.12.720p:d
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.02.19.720p:a
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.02.26.720p:a
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.03.04.720p:8
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.03.11.720p:2
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.03.18.720p:5
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.03.25.720p:4
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.04.01.1080p:4
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.04.08.1080p:0
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.04.15.720p:d
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.04.22.HD.TNT:1
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.04.29.720p.TNT:9
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.05.06.1080p:c
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.05.13.720p.TNT:3
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.05.20.1080p:1
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.05.27.1080p:9
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.06.03.1080p:4
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.06.10.1080p:6
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.06.17.1080p:2
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.06.24.1080p:7
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.07.01.1080p:2
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.07.08.1080p:8
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.07.15.1080p:b
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.07.22.720p:3
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.07.29.1080p:f
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.08.05.1080p:2
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.08.12.1080p:9
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.08.22.720p.WEB.h264-HEEL:b
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.08.27.1080p:d
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.09.02.1080p:b
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.09.09.1080p:2
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.09.16.1080p:b
-https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.09.22.Special.1080p:1
+- https://odysee.com/@Sigmum:b/AAW.2021.09.02.Destination.Chicago:e
+- https://odysee.com/@Sigmum:b/AEW-Dynamite-2021-09-29-720p:5
+- https://odysee.com/@Sigmum:b/AEW-Fyter-Fest-Buy-In.2019.720:3
+- https://odysee.com/@Sigmum:b/AEW-REVOLUTION-THE-BUY-IN:6
+- https://odysee.com/@Sigmum:b/AEW.2019.06.29.Fyter.Fest.2019.PPV.1080p:a
+- https://odysee.com/@Sigmum:b/AEW.2019.08.31.All.Out.2019.PPV.1080p:e
+- https://odysee.com/@Sigmum:b/AEW.2019.08.31.All.Out.2019.Pre.Show.1080p:d
+- https://odysee.com/@Sigmum:b/AEW.2019.11.09.Full.Gear.BUYIN.720p:7
+- https://odysee.com/@Sigmum:b/AEW.2019.11.09.Full.Gear.PPV.1080p:f
+- https://odysee.com/@Sigmum:b/AEW.2020.02.29.Revolution.1080p:5
+- https://odysee.com/@Sigmum:b/AEW.All.Out.2020.PPV.720p:3
+- https://odysee.com/@Sigmum:b/AEW.Double.or.Nothing.2019.PPV_720:3
+- https://odysee.com/@Sigmum:b/AEW.Double.Or.Nothing.2020.PPV.720p:6
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.01.01.720p:0
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.01.08.720p:d
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.01.15.720p:1
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.01.29.720p:f
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.02.05.720p:2
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.02.12.720p:d
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.02.19.720p:a
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.02.26.720p:a
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.03.04.720p:8
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.03.11.720p:2
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.03.18.720p:5
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.03.25.720p:4
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.04.01.1080p:4
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.04.08.1080p:0
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.04.15.720p:d
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.04.22.HD.TNT:1
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.04.29.720p.TNT:9
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.05.06.1080p:c
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.05.13.720p.TNT:3
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.05.20.1080p:1
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.05.27.1080p:9
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.06.03.1080p:4
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.06.10.1080p:6
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.06.17.1080p:2
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.06.24.1080p:7
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.07.01.1080p:2
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.07.08.1080p:8
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.07.15.1080p:b
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.07.22.720p:3
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.07.29.1080p:f
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.08.05.1080p:2
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.08.12.1080p:9
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.08.22.720p.WEB.h264-HEEL:b
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.08.27.1080p:d
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.09.02.1080p:b
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.09.09.1080p:2
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.09.16.1080p:b
+- https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.09.22.Special.1080p:1
 https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.09.23.1080p:e
 https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.09.30.1080p:6
 https://odysee.com/@Sigmum:b/AEW.Dynamite.2020.10.07.720p:e
