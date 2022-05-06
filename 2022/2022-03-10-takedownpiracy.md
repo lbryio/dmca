@@ -14,6 +14,8 @@ Jacksonville, Florida
 
 The following works are the copyrighted property of All Elite Wrestling,
 LLC:
+- https://odysee.com/AEW.Dynamite.2022.05.04:6
+- https://odysee.com/AEW.Rampage.2022.04.29:b
 - https://odysee.com/@Sigmum1:a/ROH.2022.04.01.Supercard.of.Honor:3
 - https://odysee.com/AEW.Rampage.2022.04.22.720p.WEB.h264-HEEL---Copia:6
 - https://odysee.com/AEW.Dynamite.2022.04.27.720p.WEB.h264-HEEL:d
