@@ -16,6 +16,11 @@ IP Address: 104.26.5.54
 Infringing URLs:
 https://odysee.com/@gonzalezmillan:0/KINEMASTER-PREMIUM-4.14-APK-DESBLOQUEADO:1?fbclid=IwAR3Ceekzwes53o8-eGkH9Z8xlXsEBWfdZmiBtQyjbDjrYbd9vMhvVM28m1k&sunset=lbrytv
 
+- https://odysee.com/@PeliculasEstreno:1/Viuda-Negra-(2021)-Online-Latino-HD:f
+- https://odysee.com/Viuda-Negra-(Black-Widow)-(2021)-Espa%C3%B1ol-Latino-720p:5
+- https://odysee.com/@NoCopyrightMusic:30/VID_20210711_132726_574:b
+- https://odysee.com/@playpelis:9/BlackWidow:b8
+
 
 3) Our client believes that the content above is infringing upon their copyrighted work(s), as listed below:
 
