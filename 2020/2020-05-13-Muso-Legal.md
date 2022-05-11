@@ -40,10 +40,17 @@ ALLEGEDLY INFRINGING ITEMS OR MATERIALS
 The infringing items are the works of: The Last of Us Part II - PS4.
 
 Infringing material that I demand be disabled or removed in consideration of the above:
+- odysee.com/@pericardite:2/2000-Mules-by-Dinesh-D'Souza:5
+- odysee.com/@DaPrecursor:e/2000-Mules-documentary-film-by-Dinesh-Joseph-DSouza:9
+- odysee.com/@James:c6/MULES:4
+- odysee.com/@Films:5c/D08:5
+- odysee.com/@Ti-bonheur:7/2000-Mules-documentary-Dinesh-D’souza-2022-full-film-V.O.:2
+- odysee.com/@Nano:e5/2000_Mules
 - odysee.com/AGIOS-NEKTARIOS:7
 - odysee.com/@Documentary-Archive:0/JFK.Revisited.Through.The.Looking.Glass.20211:d
 - odysee.com/@Z-Project:b/JFK-Revisited-Die-Wahrheit-über-den-Mord-an-John-F.-Kennedy---1080p:6
 - odysee.com/@QuantumRhino:9/JFK-Revisited--Through-the-Looking-Glass--(2021):0
+- https://github.com/lbryio/dmca/edit/master/2020/2020-05-13-Muso-Legal.md
 
 - https://odysee.com/@YellowFlagsInfos:e/2000Mules:b
 - https://odysee.com/@AndreCorbeil:2/he0_d.caa:1
