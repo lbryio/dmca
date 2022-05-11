@@ -30,6 +30,39 @@ https://odysee.com/@gonzalezmillan:0/KINEMASTER-PREMIUM-4.14-APK-DESBLOQUEADO:1?
 - https://odysee.com/Jungle.Cruise.2021.1080p.WEBRip.x264.AAC5.1:3
 - https://odysee.com/@MostPopularMovies:8/Jungle.Cruise.2021.720p:b
 - https://odysee.com/JungleCruise2021:2
+- https://odysee.com/@MoviesD0tCom:b/Free.Guy.2021:62
+- https://odysee.com/@vaccines-covid-nwo:3/Free.Guy.2021.1080p.HDRip.1400MB.DD5.1.x264-GalaxyRG:3
+- https://odysee.com/@SergioMolinero:b/Free-Guy-(2021).(Castellano-Spanish).(Full-HD-1080p).(By-Ornitorrinco):4
+- https://odysee.com/@SHADOW-WALKER:e/Free.Guy.2021.1080p.BluRay.x264.AAC5.1:a
+- https://odysee.com/@AR_MF:8/Free-Guy---es-todo-pura-mentira:7
+- https://odysee.com/@playpelis:9/FreeGuyperdiendoelcontrol:a
+- https://odysee.com/@MoviesD0tCom:b/Free.Guy.2021:62
+- https://odysee.com/@vaccines-covid-nwo:3/Free.Guy.2021.1080p.HDRip.1400MB.DD5.1.x264-GalaxyRG:3
+- https://odysee.com/@SergioMolinero:b/Free-Guy-(2021).(Castellano-Spanish).(Full-HD-1080p).(By-Ornitorrinco):4
+- https://odysee.com/@SHADOW-WALKER:e/Free.Guy.2021.1080p.BluRay.x264.AAC5.1:a
+- https://odysee.com/@AR_MF:8/Free-Guy---es-todo-pura-mentira:7
+- https://odysee.com/@playpelis:9/FreeGuyperdiendoelcontrol:a
+- https://odysee.com/@HiFi%E5%A4%A7%E5%AE%B6%E8%B0%88:0/wj.1080p.BD%E4%B8%AD%E8%8B%B1%E5%8F%8C%E5%AD%97-66%E5%BD%B1%E8%A7%86www.66Ys.Co-:0
+- https://odysee.com/@Pel%C3%ADculasTNT77:e/freeguytomandoelcontrol:b
+- https://odysee.com/@DFRNBEN:1/Free-Guy.2021.brrs.720p.TrueSpanish:9
+- https://odysee.com/free-guy-assumindo-o-controle:e
+- https://odysee.com/@bingewatchmovies:8/shang-chi:6
+- https://odysee.com/@Hollywood_media_xyz:2/Shang-Chi-and-the-Legend-of-the-Ten-Rings-2021-full-movie:e
+- https://odysee.com/@ALL_ABOUT_MOVIES:1/Shang-Chi-and-the-Legend-of-the-Ten-Rings-(2021)-1080p-UHD:e
+- https://odysee.com/@bingewatchmovies:8/shang-chi:6
+- https://odysee.com/@Hollywood_media_xyz:2/Shang-Chi-and-the-Legend-of-the-Ten-Rings-2021-full-movie:e
+- https://odysee.com/@ALL_ABOUT_MOVIES:1/Shang-Chi-and-the-Legend-of-the-Ten-Rings-(2021)-1080p-UHD:e
+- https://odysee.com/@Pel%C3%ADculasTNT77:e/ShangChiylaleyendadelosDiezAnillos:0
+- https://odysee.com/@movies:3b/encanto:c
+- https://odysee.com/@ElLoretanilloMovies:4/Encanto2021:d
+- https://odysee.com/@Pel%C3%ADculasTNT77:e/Encanto:e
+- https://odysee.com/Encanto-(Subtitulada-al-Espa%C3%B1ol).:a
+- https://odysee.com/@Pel%C3%ADculasTNT77:e/Eternals:4e
+- https://odysee.com/@mejor33:0/Eternals-20210:3
+- https://odysee.com/@CuevanaOficial:1/Eternals-(2021):9
+- https://odysee.com/Eternals-(Subtitulada-al-Espa%C3%B1ol).:3
+- https://odysee.com/@pelis-home:a/-Pelicula-Eternals-2021--Eternals-Ver-Online-%E2%80%94-Gnula-2_1:d
+
 
 3) Our client believes that the content above is infringing upon their copyrighted work(s), as listed below:
 
