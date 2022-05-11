@@ -45,6 +45,20 @@ Infringing material that I demand be disabled or removed in consideration of the
 - odysee.com/@Z-Project:b/JFK-Revisited-Die-Wahrheit-über-den-Mord-an-John-F.-Kennedy---1080p:6
 - odysee.com/@QuantumRhino:9/JFK-Revisited--Through-the-Looking-Glass--(2021):0
 
+- https://odysee.com/@YellowFlagsInfos:e/2000Mules:b
+- https://odysee.com/@AndreCorbeil:2/he0_d.caa:1
+- https://odysee.com/@QuantumRhino:9/2000-Mules-(2022):4
+- https://odysee.com/@Fingerbob:c/2000-Mules-by-Dinesh-DSouza:e
+- https://odysee.com/@Robert-Self:a0/2000-Mules---documentary-film-by-Dinesh-Joseph-D'Souza--3idHV2GuPgOz-:2
+- https://odysee.com/@MickeHagenbo:9/trim.74B146ED-D60A-4918-9382-6CA69B2D42DC:3
+- https://odysee.com/@rik617:8/2000-Mules---documentary-film-by-Dinesh-Joseph-DSouza-:4
+- https://odysee.com/@AmericanLogic:2/2000-Mules-MASTER:1
+- https://odysee.com/@Trump_Won_2020:b/2000-Mules---2020-Election-Fraud-Documentary-by-Dinesh-D%E2%80%99Souza-05.07.22:6
+- https://odysee.com/@AmericanLogic:2/2000-Mules-MASTER:1
+- https://odysee.com/@ChangingTimes:4/2000-MULES:7
+- https://odysee.com/@GROPHENSTOPPLE:f/2000-Mules:bb
+- https://odysee.com/@StensKanal:3/video_2022-05-08_13-46-04:3
+- https://odysee.com/@Doku:0/2000Mules:12
 
 https://lbry.tv/TLoUP2-LEAK:5
 
