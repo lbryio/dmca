@@ -16,6 +16,28 @@ OBJECT: Infringement of copyright material
 
 Dear LBRY,
 
+  
+  M et le 2e secret
+
+https://odysee.com/@mesfilms:b/M_et_le_3eme_secret:a
+
+https://odysee.com/@trirsa:c/m3secret:b
+
+
+
+THANATOS l'ultime passage
+
+https://odysee.com/@elijahdemonghost:2/Thanatos,-l'ultime-passage:1d
+
+https://odysee.com/@DissidenceTV:b/Thanatos,-l'ultime-passage:5
+
+https://odysee.com/@HermesTrismegiste:f/Thanatos,-l%E2%80%99ultime-passage:0
+
+https://odysee.com/@NWO_resistance:9/Thanatos-lultime-passage---La-vie-apres-la-mort:1
+
+One of them is for pay ?!
+
+https://odysee.com/@LugNassad:0/Thanatos,-l%E2%80%99ultime-passage-(Pierre-Barn%C3%A9rias):7
 
 
 We believe you value your work as much as we do. It has come to our attention that you infringed our copyright protected work by law : HOLD-UP the movie. This infringment consists of illegally broadcasting on your platform our movie, HOLD-UP as seen below (links):
