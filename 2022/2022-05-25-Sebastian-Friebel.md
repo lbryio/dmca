@@ -6,6 +6,8 @@ The unauthorized and infringing copy can be found at:
 
 https://odysee.com/@Klartext-im-O-Ton:3/sebastian-friebel-wie-soll-es:9
 
+https://odysee.com/@QuantumRhino:9/AUSGEZEICHNETE-REDE-VON-SEBASTIAN-FRIEBEL-VOR-KURZEM-NOCH-PARLAMENTARISCHER-BERATER-IM-BUNDESTAG:2
+
 https://odysee.com/@DerW%C3%A4chter:5/vorstellung-sebastian-friebel-ehm:1
 
 https://odysee.com/@transformation:f/Sebastian-Friebel-stellt-eine-neue-Verschw%C3%B6rungstheorie-auf:2
