@@ -16,6 +16,10 @@ Phone: +34 934 189 433
 - https://lbry.tv/@TutorialesEspa%C3%B1ol:2/006-BREAK-2_-Doblaje_-Inicios-y-trayectoria:a
 - https://lbry.tv/@TutorialesEspa%C3%B1ol:2/003-El-sistema-auditivo-humano:8
 - https://lbry.tv/@TutorialesEspa%C3%B1ol:2/004-Somos-Primates:4
+- https://odysee.com/@FafaLagainz:2/BlackWidowVF:e
+- https://odysee.com/@filmenvo:c/Wiflix---Black-Widow,-Black-Widow-streaming,-voir-Black-Wido:4
+- https://odysee.com/@The_Stout_Hearted:d/blackwidow:82
+
 
 
 3) Our client believes that the content above is infringing upon their copyrighted work(s), as listed below:
