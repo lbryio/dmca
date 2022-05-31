@@ -53,6 +53,8 @@ https://odysee.com/@CounterSpoliation:6/CIA-Dave-Acton-court-testimony-George-We
 
 https://odysee.com/@CounterSpoliation:6/Trigger-Warning-Cyber-Militia-forming---George-Webb-advised:0
 
+https://odysee.com/@CounterSpoliation:6/davecybermilitia:b // May 27, 2022 notice
+
 I am providing this notice in good faith and with reasonable belief that David George Sweigert's
 rights are being infringed. Under the penalty of perjury, I certify that the information contained
 in this notification is both true and accurate.
