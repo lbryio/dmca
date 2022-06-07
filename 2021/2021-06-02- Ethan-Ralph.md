@@ -12,6 +12,7 @@ https://killstream.tv/
 The unauthorized and infringing copy can be found at:
 
 - https://odysee.com/@KillstreamTV:6
+- https://odysee.com/@CM_SIMP:9/leggo:4
 - https://odysee.com/@PhoBingasFoodsInc:7
 - https://odysee.com/@TheGatorGamer:e9
 
