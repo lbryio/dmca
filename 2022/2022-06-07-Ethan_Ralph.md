@@ -7,7 +7,9 @@ https://cozy.tv/ethanralph
 
 The unauthorized and infringing copy can be found at:
 
-https://odysee.com/@CM_SIMP:9/leggo:4
+- https://odysee.com/@CM_SIMP:9/leggo:4 
+- https://odysee.com/@CringeMomma:7/sup:78
+
 
 This letter is official notification under Section 512(c) of the Digital Millennium Copyright Act ("DMCA"), and I seek the removal of the aforementioned infringing material from your servers. I request that you immediately notify the infringer of this notice and inform them of their duty to remove the infringing material immediately, and notify them to cease any further posting of infringing material to your server in the future.
 
