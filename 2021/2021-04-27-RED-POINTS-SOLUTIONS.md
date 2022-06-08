@@ -14,6 +14,26 @@ Phone: +34 934 189 433
 2) CREHANA has confirmed to us that they have a good faith belief that the following content is infringing upon their valid intellectual property rights:
 
 - https://lbry.tv/@TutorialesEspa%C3%B1ol:2/006-BREAK-2_-Doblaje_-Inicios-y-trayectoria:a
+- https://odysee.com/@Ian07:3/de-vuelta-al-barrio-4ta-temporada-cap-38:2
+- https://odysee.com/@Ian07:3/de-vuelta-al-barrio-4ta-temporada-cap-35:e
+- https://odysee.com/@Ian07:3/de-vuelta-al-barrio-4ta-temporada-cap-34:1
+- https://odysee.com/@Ian07:3/de-vuelta-al-barrio-4ta-temporada-cap-32:0
+- https://odysee.com/@Ian07:3/alex-renunciar-a-sof-a-y-abandonar-el:9
+- https://odysee.com/@Ian07:3/de-vuelta-al-barrio-4ta-temporada-cap:4
+- https://odysee.com/@Ian07:3/de-vuelta-al-barrio-4ta-temporada-cap-41:b
+- https://odysee.com/@Ian07:3/de-vuelta-al-barrio-4ta-temporada-cap-36:8
+- https://odysee.com/@Ian07:3/de-vuelta-al-barrio-4ta-temporada-cap-29:e
+- https://odysee.com/@Ian07:3/de-vuelta-al-barrio-4ta-temporada-cap-18:1
+- https://odysee.com/@Ian07:3/de-vuelta-al-barrio-4ta-temporada-cap-6:9
+- https://odysee.com/@Ian07:3/de-vuelta-al-barrio-4ta-temporada-cap-31:5
+- https://odysee.com/@Ian07:3/de-vuelta-al-barrio-4ta-temporada-cap-23:b
+- https://odysee.com/@Ian07:3/de-vuelta-al-barrio-4ta-temporada-cap-10:a
+- https://odysee.com/@Ian07:3/de-vuelta-al-barrio-4ta-temporada-cap-3:5
+- https://odysee.com/@Ian07:3/de-vuelta-al-barrio-4ta-temporada-cap-25:9
+- https://odysee.com/@Ian07:3/de-vuelta-al-barrio-4ta-temporada-cap-11:7
+- https://odysee.com/@peru_novelas:e/DVAB3:d
+- https://odysee.com/@peru_novelas:e/DVAB2:f
+- https://odysee.com/@peru_novelas:e/DVAB1:9
 - https://lbry.tv/@TutorialesEspa%C3%B1ol:2/003-El-sistema-auditivo-humano:8
 - https://lbry.tv/@TutorialesEspa%C3%B1ol:2/004-Somos-Primates:4
 - https://odysee.com/@FafaLagainz:2/BlackWidowVF:e
