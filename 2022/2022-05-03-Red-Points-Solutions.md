@@ -17,6 +17,11 @@ Infringing URLs:
 https://odysee.com/@gonzalezmillan:0/KINEMASTER-PREMIUM-4.14-APK-DESBLOQUEADO:1?fbclid=IwAR3Ceekzwes53o8-eGkH9Z8xlXsEBWfdZmiBtQyjbDjrYbd9vMhvVM28m1k&sunset=lbrytv
 
 - https://odysee.com/@PeliculasEstreno:1/Viuda-Negra-(2021)-Online-Latino-HD:f
+- https://odysee.com/@FMOVIES:6/Doctor.Strange.in.the.Multiverse.of.Madness.FMOVIES:6
+- https://odysee.com/@lyrakasira:0/The-King's-Man:4
+- https://odysee.com/@JoseLuisSantillanHerrera:0/descargar-viuda-negra-black-widow-en-hd:9
+- https://odysee.com/@corsair31:2/Shang-Chi-et-la-l%C3%A9gende-des-dix-anneaux-Truefrench-Bluray-Audio-HQ:e
+- https://odysee.com/@EmperadorManux:6/descargar-la-viuda-negra-(black-widow):2
 - https://odysee.com/Viuda-Negra-(Black-Widow)-(2021)-Espa%C3%B1ol-Latino-720p:5
 - https://odysee.com/@NoCopyrightMusic:30/VID_20210711_132726_574:b
 - https://odysee.com/@playpelis:9/BlackWidow:b8
