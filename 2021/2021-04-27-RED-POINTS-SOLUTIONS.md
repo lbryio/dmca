@@ -14,6 +14,8 @@ Phone: +34 934 189 433
 2) CREHANA has confirmed to us that they have a good faith belief that the following content is infringing upon their valid intellectual property rights:
 
 - https://lbry.tv/@TutorialesEspa%C3%B1ol:2/006-BREAK-2_-Doblaje_-Inicios-y-trayectoria:a
+- https://odysee.com/Viuda-Negra-2021-latino-HD:b
+- https://odysee.com/@FullMovieStudio:2/Encanto:4
 - https://odysee.com/@Ian07:3/de-vuelta-al-barrio-4ta-temporada-cap-38:2
 - https://odysee.com/@Ian07:3/de-vuelta-al-barrio-4ta-temporada-cap-35:e
 - https://odysee.com/@Ian07:3/de-vuelta-al-barrio-4ta-temporada-cap-34:1
