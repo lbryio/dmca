@@ -45,6 +45,12 @@ work.
 Each of these URLs loads a web page that allows to launch the download of
 the copyrighted work.
 - https://odysee.com/@jojodu54:c/NOSSO-LAR:e
+- https://odysee.com/21a:3
+- https://odysee.com/22a:35
+- https://odysee.com/23:4e
+- https://odysee.com/58:4cb
+- https://odysee.com/57c:a
+- https://odysee.com/56c:e
 - https://odysee.com/ep51:7
 - https://odysee.com/54c:c
 - https://odysee.com/55c:9
