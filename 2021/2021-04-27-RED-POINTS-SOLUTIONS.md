@@ -14,6 +14,12 @@ Phone: +34 934 189 433
 2) CREHANA has confirmed to us that they have a good faith belief that the following content is infringing upon their valid intellectual property rights:
 
 - https://lbry.tv/@TutorialesEspa%C3%B1ol:2/006-BREAK-2_-Doblaje_-Inicios-y-trayectoria:a
+- https://odysee.com/@MateyAUDI:5/Equipo-de-investigaci%C3%B3n---SOS-NARANJAS---Cap%C3%ADtulo-Completo:8
+- https://odysee.com/@adiosjehova!!:9/Programa-equipo-de-investigacion-tjs:1
+- https://odysee.com/@MateyAUDI:5/Equipo-de-Investigaci%C3%B3n---El-rey-de-los-Gitanos---Cap%C3%ADtulo-Completo:b
+- https://odysee.com/@Peque%C3%B1o_otaku:4/equipo_investigacion_tj:b
+- https://odysee.com/@MateyAUDI:5/Equipo-de-Investigaci%C3%B3n---Aguas-Bajo-Sospecha---Cap%C3%ADtulo-Completo:2
+- https://odysee.com/@triver26:f/EQUIPO-DE-INVESTIGACI%C3%93N-EL-PLANETA-DE-LAS-RATAS-NUEVO-2020-(720p_25fps_H264-128kbit_AAC):e
 - https://odysee.com/Viuda-Negra-2021-latino-HD:b
 - https://odysee.com/@FullMovieStudio:2/Encanto:4
 - https://odysee.com/@Ian07:3/de-vuelta-al-barrio-4ta-temporada-cap-38:2
