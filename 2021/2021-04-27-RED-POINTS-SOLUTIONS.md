@@ -14,6 +14,20 @@ Phone: +34 934 189 433
 2) CREHANA has confirmed to us that they have a good faith belief that the following content is infringing upon their valid intellectual property rights:
 
 - https://lbry.tv/@TutorialesEspa%C3%B1ol:2/006-BREAK-2_-Doblaje_-Inicios-y-trayectoria:a
+- https://odysee.com/@reycar:c/el-chiringuito-de-jugones-23-de:3
+- https://odysee.com/@AmazingSports:c/el-chiringuito-de-jugones-viernes-22-de-mayo-2020-completo-hd720:d
+- https://odysee.com/@lasmatastv:d/El-Chiringuito-de-Jugones---Programa-1917-(21-03-22)_3:c
+- https://odysee.com/@lasmatastv:d/El-Chiringuito-de-Jugones---Programa-1930-(11-04-22):a
+- https://odysee.com/YouCut_20201126_185533736:2 
+- https://odysee.com/@reycar:c/el-chiringuito-de-jugones-23-de:3
+- https://odysee.com/@AmazingSports:c/el-chiringuito-de-jugones-viernes-22-de-mayo-2020-completo-hd720:d
+- https://odysee.com/@lasmatastv:d/El-Chiringuito-de-Jugones---Programa-1917-(21-03-22)_3:c
+- https://odysee.com/@lasmatastv:d/El-Chiringuito-de-Jugones---Programa-1930-(11-04-22):a
+- https://odysee.com/YouCut_20201126_185533736:2
+- https://odysee.com/@Dragostea:9/Meet-the-Queens-of-Drag-Race-Espa%C3%B1a-Conocemos-A-Las-Reinas:c
+- https://odysee.com/@sanx2:c/talent-show-drag-race-espa%C3%B1a-season-2:b
+- https://odysee.com/@MariaRamos23:a/infiel-telenovela-turca:9
+- https://odysee.com/@Dragostea:9/Drag-Race-Espa%C3%B1a-Teaser:2
 - https://odysee.com/@MateyAUDI:5/Equipo-de-investigaci%C3%B3n---SOS-NARANJAS---Cap%C3%ADtulo-Completo:8
 - https://odysee.com/@adiosjehova!!:9/Programa-equipo-de-investigacion-tjs:1
 - https://odysee.com/@MateyAUDI:5/Equipo-de-Investigaci%C3%B3n---El-rey-de-los-Gitanos---Cap%C3%ADtulo-Completo:b
