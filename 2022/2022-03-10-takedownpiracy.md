@@ -15,6 +15,10 @@ Jacksonville, Florida
 The following works are the copyrighted property of All Elite Wrestling,
 LLC:
 - https://odysee.com/AEW.Dynamite.2022.05.04:6
+- https://odysee.com/AEW_Dynamite_-_June_22_2022:7
+- https://odysee.com/aewdynamite20220623:2
+- https://odysee.com/aew_rampage-061722:1
+- https://odysee.com/aewrampage20220617:e
 - https://odysee.com/@MagicMouse:7/AEW.Double.Or.Nothing.2022.PPV.1080p.WEB.h264-HEEL:4
 - https://odysee.com/AEW.Dynamite.2022.06.08.1080p.WEB.h264-HEEL:1
 - https://odysee.com/AEW.Rampage.2022.06.03.720p.WEB.h264-HEEL:c
