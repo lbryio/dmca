@@ -10,6 +10,7 @@ Secrétaire national d'Égalité & Réconciliation
 Mail : <email private>
 
 Content: https://lbry.tv/@niklev:2/SAPTR-16-arrestation,-garde-%C3%A0-vue-et-la-suite...:9
+  - https://odysee.com/@gil.boutay:9/soral-a-presque-toujours-raison-episode-20:7
 
 The content is a video file copyrighted by our association and only available for crowdfounding subscribers and VOD customers on a authorised commercial website, in this case here : https://kontrekulture.com/produit/soral-a-presque-toujours-raison-episode-16/
 
