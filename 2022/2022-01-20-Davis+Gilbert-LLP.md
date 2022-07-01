@@ -22,6 +22,584 @@ apinna@dglaw.com
 
 The infringing videos are all on the Odysee.com website located generally here: https://odysee.com/@davidwilcockcoreygoodeweeklyshow:8?view=content. Links to the specific video episodes are below:
 
+
+Posted by lbry://@Cosmic-Disclosure#9:
+
+
+    CosmicDisclosure-CoreyGoode 051 Viewer Questions Part 4
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-051-Viewer-Questions-Part-4:a
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-051-Viewer-Questions-Part-4#a
+
+
+    CosmicDisclosure-CoreyGoode 050 The Earth Alliance
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-050-The-Earth-Alliance:9
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-050-The-Earth-Alliance#9
+
+
+    CosmicDisclosure-CoreyGoode 049 Personality Metamorph Program
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-049-Personality-Metamorph-Program:9
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-049-Personality-Metamorph-Program#9
+
+
+    CosmicDisclosure-CoreyGoode 048 Inner Earth Update
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-048-Inner-Earth-Update:3
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-048-Inner-Earth-Update#3
+
+
+    CosmicDisclosure-CoreyGoode 047 Viewer Questions Part 3
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-047-Viewer-Questions-Part-3:6
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-047-Viewer-Questions-Part-3#6
+
+
+    CosmicDisclosure-CoreyGoode 046 The Dark Fleet
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-046-The-Dark-Fleet:7
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-046-The-Dark-Fleet#7
+
+
+    CosmicDisclosure-CoreyGoode 045 Voice of God Technology
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-045-Voice-of-God-Technology:5
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-045-Voice-of-God-Technology#5
+
+
+    CosmicDisclosure-CoreyGoode 044 Government Troll Data Center
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-044-Government-Troll-Data-Center:f
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-044-Government-Troll-Data-Center#f
+
+
+    CosmicDisclosure-CoreyGoode 043 Age Regression and Time Travel Technology
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-043-Age-Regression-and-Time-Travel-Technology:b
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-043-Age-Regression-and-Time-Travel-Technology#b
+
+
+    CosmicDisclosure-CoreyGoode 042 Who Built the Moon
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-042-Who-Built-the-Moon:0
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-042-Who-Built-the-Moon#0
+
+
+    CosmicDisclosure-CoreyGoode 041 Super Earth.mp4
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-041-Super-Earth:7
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-041-Super-Earth#7
+
+
+    CosmicDisclosure-CoreyGoode 040 Ubuntu and the Blue Avians' Message Part 2
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-040-Ubuntu-and-the-Blue-Avians%27-Message-Part-2:8
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-040-Ubuntu-and-the-Blue-Avians'-Message-Part-2#8
+
+
+    CosmicDisclosure-CoreyGoode 039 Inner Earth - Debriefing with the Alliance
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-039-Inner-Earth---Debriefing-with-the-Alliance:1
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-039-Inner-Earth---Debriefing-with-the-Alliance#1
+
+
+    CosmicDisclosure-CoreyGoode 038 Inner Earth - Into the Hall of Records
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-038-Inner-Earth---Into-the-Hall-of-Records:e
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-038-Inner-Earth---Into-the-Hall-of-Records#e
+
+
+    CosmicDisclosure-CoreyGoode 037 Inner Earth - The Library
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-037-Inner-Earth---The-Library:6
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-037-Inner-Earth---The-Library#6
+
+
+    CosmicDisclosure-CoreyGoode 036 Inner Earth - The Grand Tour
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-036-Inner-Earth---The-Grand-Tour:8
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-036-Inner-Earth---The-Grand-Tour#8
+
+
+    CosmicDisclosure-CoreyGoode 035 Revelations from the Inner Earth
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-035-Revelations-from-the-Inner-Earth:d
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-035-Revelations-from-the-Inner-Earth#d
+
+
+    CosmicDisclosure-CoreyGoode 034 Ubuntu and the Blue Avians' Message Part 1
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-034-Ubuntu-and-the-Blue-Avians%27-Message-Part-1:9
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-034-Ubuntu-and-the-Blue-Avians'-Message-Part-1#9
+
+
+    CosmicDisclosure-CoreyGoode 033 A Goode Trip to the Inner Earth
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-033-A-Goode-Trip-to-the-Inner-Earth:2
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-033-A-Goode-Trip-to-the-Inner-Earth#2
+
+
+    CosmicDisclosure-CoreyGoode 032 Inner Earth
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-032-Inner-Earth:8
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-032-Inner-Earth#8
+
+
+    CosmicDisclosure-CoreyGoode 031 Viewer Questions Part 2
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-031-Viewer-Questions-Part-2:7
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-031-Viewer-Questions-Part-2#7
+
+
+    CosmicDisclosure-CoreyGoode 030 New Frontiers in the AI War
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-030-New-Frontiers-in-the-AI-War:b
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-030-New-Frontiers-in-the-AI-War#b
+
+
+    CosmicDisclosure-CoreyGoode 029 Standing Guard against the AI
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-029-Standing-Guard-against-the-AI:9
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-029-Standing-Guard-against-the-AI#9
+
+
+    CosmicDisclosure-CoreyGoode 028 The Threat from Artificial Intelligence
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-028-The-Threat-from-Artificial-Intelligence:1
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-028-The-Threat-from-Artificial-Intelligence#1
+
+
+    CosmicDisclosure-CoreyGoode 027 Viewer Questions Part 1
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-027-Viewer-Questions-Part-1:6
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-027-Viewer-Questions-Part-1#6
+
+
+    CosmicDisclosure-CoreyGoode 026 SSP Sciences
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-026-SSP-Sciences:2
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-026-SSP-Sciences#2
+
+
+    CosmicDisclosure-CoreyGoode 025 Beyond the Limits of the Sun
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-025-Beyond-the-Limits-of-the-Sun:d
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-025-Beyond-the-Limits-of-the-Sun#d
+
+
+    CosmicDisclosure-CoreyGoode 024 Conquering the Solar System
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-024-Conquering-the-Solar-System:2
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-024-Conquering-the-Solar-System#2
+
+
+    CosmicDisclosure-CoreyGoode 023 Colonizing Mars
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-023-Colonizing-Mars:9
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-023-Colonizing-Mars#9
+
+
+    CosmicDisclosure-CoreyGoode 022 Finding Life on Mars
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-022-Finding-Life-on-Mars:3
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-022-Finding-Life-on-Mars#3
+
+
+    CosmicDisclosure-CoreyGoode 021 Remnants of Ancient Mars
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-021-Remnants-of-Ancient-Mars:1
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-021-Remnants-of-Ancient-Mars#1
+
+
+    CosmicDisclosure-CoreyGoode 020 We Were Never Alone
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-020-We-Were-Never-Alone:f
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-020-We-Were-Never-Alone#f
+
+
+    CosmicDisclosure-CoreyGoode 019 Raiders of Lost Technology
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-019-Raiders-of-Lost-Technology:4
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-019-Raiders-of-Lost-Technology#4
+
+
+    CosmicDisclosure-CoreyGoode 018 Breakaway Begins
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-018-Breakaway-Begins:9
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-018-Breakaway-Begins#9
+
+
+    CosmicDisclosure-CoreyGoode 017 Special Report - The Gonzales Enigma
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-017-Special-Report---The-Gonzales-Enigma:2
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-017-Special-Report---The-Gonzales-Enigma#2
+
+
+    CosmicDisclosure-CoreyGoode 016 Agarthans - Advancing the Frontier
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-016-Agarthans---Advancing-the-Frontier:5
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-016-Agarthans---Advancing-the-Frontier#5
+
+
+    CosmicDisclosure-CoreyGoode 015 Contact is Made
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-015-Contact-is-Made:e
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-015-Contact-is-Made#e
+
+
+    CosmicDisclosure-CoreyGoode 014 Portals - Parallel Earth
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-014-Portals---Parallel-Earth:c
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-014-Portals---Parallel-Earth#c
+
+
+    CosmicDisclosure-CoreyGoode 013 Portals - Navigating Time
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-013-Portals---Navigating-Time:1
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-013-Portals---Navigating-Time#1
+
+
+    CosmicDisclosure-CoreyGoode 012 Portals - Cosmic Web
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-012-Portals---Cosmic-Web:f
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-012-Portals---Cosmic-Web#f
+
+
+    CosmicDisclosure-CoreyGoode 011 Potential of Human Consciousness
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-011-Potential-of-Human-Consciousness:4
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-011-Potential-of-Human-Consciousness#4
+
+
+    CosmicDisclosure-CoreyGoode 010 Awakening the Pineal Gland
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-010-Awakening-the-Pineal-Gland:1
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-010-Awakening-the-Pineal-Gland#1
+
+
+    CosmicDisclosure-CoreyGoode 009 Electric Sun
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-009-Electric-Sun:e
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-009-Electric-Sun#e
+
+
+    CosmicDisclosure-CoreyGoode 008 Global Galactic League of Nations
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-008-Global-Galactic-League-of-Nations:8
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-008-Global-Galactic-League-of-Nations#8
+
+
+    CosmicDisclosure-CoreyGoode 007 Special Report Mars Colony Inspection
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-007-Special-Report-Mars-Colony-Inspection:9
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-007-Special-Report-Mars-Colony-Inspection#9
+
+
+    CosmicDisclosure-CoreyGoode 006 Sleeping Giants
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-006-Sleeping-Giants:b
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-006-Sleeping-Giants#b
+
+
+    CosmicDisclosure-CoreyGoode 005 We are One
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-005-We-are-One:1
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-005-We-are-One#1
+
+
+    CosmicDisclosure-CoreyGoode 004 Life on the Research Vessel
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-004-Life-on-the-Research-Vessel:b
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-004-Life-on-the-Research-Vessel#b
+
+
+    CosmicDisclosure-CoreyGoode 003 Lunar Operations Command
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-003-Lunar-Operations-Command:2
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-003-Lunar-Operations-Command#2
+
+
+    CosmicDisclosure-CoreyGoode 002 First Encounter- Meeting at LOC on coming Energy Tsunami
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-002-First-Encounter--Meeting-at-LOC:e
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-002-First-Encounter--Meeting-at-LOC#e
+
+
+    CosmicDisclosure-CoreyGoode 001 The Message for Humankind-Introduction to Coreys Story HD
+
+https://odysee.com/@Cosmic-Disclosure:9/CosmicDisclosure-CoreyGoode-001-The-Message-for-Humankind:a
+lbry://@Cosmic-Disclosure#9/CosmicDisclosure-CoreyGoode-001-The-Message-for-Humankind#a
+
+
+Posted by lbry://@ThatStrangeSideOfTheGarden#a:
+
+
+    Cosmic Disclosure S12E30 S03E11 - Emery Smith speaks to George Noory - [2019-02-19] Clones Among Us
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E30-S03E11---Emery-Smith-speaks-to-George-Noory----2019-02-19--Clones-Among-Us:0
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E30-S03E11---Emery-Smith-speaks-to-George-Noory----2019-02-19--Clones-Among-Us#0
+
+
+    Cosmic Disclosure S12E29 S03E10 - Emery Smith speaks to George Noory - [2019-02-12] Hidden E.T. Civilizations
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E29-S03E10---Emery-Smith-speaks-to-George-Noory----2019-02-12--Hidden-E.T.-Civilizations:3
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E29-S03E10---Emery-Smith-speaks-to-George-Noory----2019-02-12--Hidden-E.T.-Civilizations#3
+
+
+    Cosmic Disclosure S12E28 S04E18 - Jason Rice speaks to Jay Weidner - [2019-02-05] Culture and Customs of a Distant World
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E28-S04E18---Jason-Rice-speaks-to-Jay-Weidner----2019-02-05--Culture-and-Customs-of-a-Distant-World:4
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E28-S04E18---Jason-Rice-speaks-to-Jay-Weidner----2019-02-05--Culture-and-Customs-of-a-Distant-World#4
+
+
+    Cosmic Disclosure S12E27 S04E17 - Jason Rice speaks to Jay Weidner - [2019-01-29] IDARF Tech
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E27-S04E17---Jason-Rice-speaks-to-Jay-Weidner----2019-01-29--IDARF-Tech:1
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E27-S04E17---Jason-Rice-speaks-to-Jay-Weidner----2019-01-29--IDARF-Tech#1
+
+
+    Cosmic Disclosure S12E26 S04E16 - Jason Rice speaks to Jay Weidner - [2019-01-29] Technologies of the SSP
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E26-S04E16---Jason-Rice-speaks-to-Jay-Weidner----2019-01-29--Technologies-of-the-SSP:2
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E26-S04E16---Jason-Rice-speaks-to-Jay-Weidner----2019-01-29--Technologies-of-the-SSP#2
+
+
+    Cosmic Disclosure S12E25 S04E15 - Emery Smith speaks to George Noory - [2019-01-22] E.T.s Helping Humanity
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E25-S04E15---Emery-Smith-speaks-to-George-Noory----2019-01-22--E.T.s-Helping-Humanity:a?lid=d1970072be18913eaa21b6fbf3ae564362cc8db0
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E25-S04E15---Emery-Smith-speaks-to-George-Noory----2019-01-22--E.T.s-Helping-Humanity#a
+
+
+    Cosmic Disclosure S12E24 S03E09 - Emery Smith speaks to George Noory - [2019-01-15] Underwater Operations
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E24-S03E09---Emery-Smith-speaks-to-George-Noory----2019-01-15--Underwater-Operations:b
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E24-S03E09---Emery-Smith-speaks-to-George-Noory----2019-01-15--Underwater-Operations#b
+
+
+    Cosmic Disclosure S12E23 S04E14 - Jason Rice speaks to Jay Weidner - [2019-01-08] Realizing the Great Deception
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E23-S04E14---Jason-Rice-speaks-to-Jay-Weidner----2019-01-08--Realizing-the-Great-Deception:a
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E23-S04E14---Jason-Rice-speaks-to-Jay-Weidner----2019-01-08--Realizing-the-Great-Deception#a
+
+
+    Cosmic Disclosure S12E22 S04E13 - Jason Rice speaks to Jay Weidner - [2019-01-01] The Long Journey Home
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E22-S04E13---Jason-Rice-speaks-to-Jay-Weidner----2019-01-01--The-Long-Journey-Home:4
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E22-S04E13---Jason-Rice-speaks-to-Jay-Weidner----2019-01-01--The-Long-Journey-Home#4
+
+
+    Cosmic Disclosure S12E21 S03E08 - Emery Smith speaks to George Noory - [2018-12-25] The Perils of Portal Missions
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E21-S03E08---Emery-Smith-speaks-to-George-Noory----2018-12-25--The-Perils-of-Portal-Missions:a
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E21-S03E08---Emery-Smith-speaks-to-George-Noory----2018-12-25--The-Perils-of-Portal-Missions#a
+
+
+    Cosmic Disclosure S12E20 S03E07 - Emery Smith speaks to George Noory - [2018-12-25] Portals Connecting the Cosmic Highway
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E20-S03E07---Emery-Smith-speaks-to-George-Noory----2018-12-25--Portals-Connecting-the-Cosmic-Highway:d
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E20-S03E07---Emery-Smith-speaks-to-George-Noory----2018-12-25--Portals-Connecting-the-Cosmic-Highway#d
+
+
+    Cosmic Disclosure S12E19 S04E12 - Jason Rice speaks to Jay Weidner - [2018-12-18] Jason's Fiercest Battle
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E19-S04E12---Jason-Rice-speaks-to-Jay-Weidner----2018-12-18--Jason%27s-Fiercest-Battle:8
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E19-S04E12---Jason-Rice-speaks-to-Jay-Weidner----2018-12-18--Jason's-Fiercest-Battle#8
+
+
+    Cosmic Disclosure S12E18 S04E11 - Jason Rice speaks to Jay Weidner - [2018-12-11] Invasion of a New World
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E18-S04E11---Jason-Rice-speaks-to-Jay-Weidner----2018-12-11--Invasion-of-a-New-World:c
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E18-S04E11---Jason-Rice-speaks-to-Jay-Weidner----2018-12-11--Invasion-of-a-New-World#c
+
+
+    Cosmic Disclosure S12E17 S03E06 - Emery Smith speaks to George Noory - [2018-12-04] Recovering Crashed Alien Crafts
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E17-S03E06---Emery-Smith-speaks-to-George-Noory----2018-12-04--Recovering-Crashed-Alien-Crafts:a
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E17-S03E06---Emery-Smith-speaks-to-George-Noory----2018-12-04--Recovering-Crashed-Alien-Crafts#a
+
+
+    Cosmic Disclosure S12E16 S04E10 - Jason Rice speaks to Jay Weidner - [2018-11-27] Induction into the SSP
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E16-S04E10---Jason-Rice-speaks-to-Jay-Weidner----2018-11-27--Induction-into-the-SSP:4
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E16-S04E10---Jason-Rice-speaks-to-Jay-Weidner----2018-11-27--Induction-into-the-SSP#4
+
+
+    Cosmic Disclosure S12E15 S04E09 - Emery Smith speaks to George Noory - [2018-11-27] Pathogens and Space Viruses
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E15-S04E09---Emery-Smith-speaks-to-George-Noory----2018-11-27--Pathogens-and-Space-Viruses:a
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E15-S04E09---Emery-Smith-speaks-to-George-Noory----2018-11-27--Pathogens-and-Space-Viruses#a
+
+
+    Cosmic Disclosure S12E14 S04E08 - Jason Rice speaks to Jay Weidner - [2018-11-20] E.T. Guidance of Human Ascension
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E14-S04E08---Jason-Rice-speaks-to-Jay-Weidner----2018-11-20--E.T.-Guidance-of-Human-Ascension:6
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E14-S04E08---Jason-Rice-speaks-to-Jay-Weidner----2018-11-20--E.T.-Guidance-of-Human-Ascension#6
+
+
+    Cosmic Disclosure S12E13 S04E07 - Jason Rice speaks to Jay Weidner - [2018-11-13] The Ultimate Battle Continues
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E13-S04E07---Jason-Rice-speaks-to-Jay-Weidner----2018-11-13--The-Ultimate-Battle-Continues:9
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E13-S04E07---Jason-Rice-speaks-to-Jay-Weidner----2018-11-13--The-Ultimate-Battle-Continues#9
+
+
+    Cosmic Disclosure S12E12 S03E05 - Emery Smith speaks to George Noory - [2018-11-06] Salvaging Ancient Alien Tech
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E12-S03E05---Emery-Smith-speaks-to-George-Noory----2018-11-06--Salvaging-Ancient-Alien-Tech:b
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E12-S03E05---Emery-Smith-speaks-to-George-Noory----2018-11-06--Salvaging-Ancient-Alien-Tech#b
+
+
+    Cosmic Disclosure S12E11 S03E04 - Emery Smith speaks to George Noory - [2018-10-30] Medical Devices of the Future
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E11-S03E04---Emery-Smith-speaks-to-George-Noory----2018-10-30--Medical-Devices-of-the-Future:c
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E11-S03E04---Emery-Smith-speaks-to-George-Noory----2018-10-30--Medical-Devices-of-the-Future#c
+
+
+    Cosmic Disclosure S12E10 S04E06 - Jason Rice speaks to Jay Weidner - [2018-10-23] Advanced Weapons and Combat Technology
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E10-S04E06---Jason-Rice-speaks-to-Jay-Weidner----2018-10-23--Advanced-Weapons-and-Combat-Technology:3
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E10-S04E06---Jason-Rice-speaks-to-Jay-Weidner----2018-10-23--Advanced-Weapons-and-Combat-Technology#3
+
+
+    Cosmic Disclosure S12E09 S04E05 - Jason Rice speaks to Jay Weidner - [2018-10-16] Battle for Planetary Dominance
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E09-S04E05---Jason-Rice-speaks-to-Jay-Weidner----2018-10-16--Battle-for-Planetary-Dominance:0
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E09-S04E05---Jason-Rice-speaks-to-Jay-Weidner----2018-10-16--Battle-for-Planetary-Dominance#0
+
+
+    Cosmic Disclosure S12E08 S04E04 - Jason Rice speaks to Jay Weidner - [2018-10-09] Reaction to the German Breakaway Civilization
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E08-S04E04---Jason-Rice-speaks-to-Jay-Weidner----2018-10-09--Reaction-to-the-German-Breakaway-Civilization:8
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E08-S04E04---Jason-Rice-speaks-to-Jay-Weidner----2018-10-09--Reaction-to-the-German-Breakaway-Civilization#8
+
+
+    Cosmic Disclosure S12E07 S04E03 - Jason Rice speaks to Jay Weidner - [2018-10-02] History of the Secret Space Program
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E07-S04E03---Jason-Rice-speaks-to-Jay-Weidner----2018-10-02--History-of-the-Secret-Space-Program:e
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E07-S04E03---Jason-Rice-speaks-to-Jay-Weidner----2018-10-02--History-of-the-Secret-Space-Program#e
+
+
+    Cosmic Disclosure S12E06 S04E02 - Jason Rice speaks to Jay Weidner - [2018-09-25] A New Insider Is Put to the Test
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E06-S04E02---Jason-Rice-speaks-to-Jay-Weidner----2018-09-25--A-New-Insider-Is-Put-to-the-Test:d
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E06-S04E02---Jason-Rice-speaks-to-Jay-Weidner----2018-09-25--A-New-Insider-Is-Put-to-the-Test#d
+
+
+    Cosmic Disclosure S12E05 S04E01 - Jason Rice speaks to Jay Weidner - [2018-09-25] Jason Rice - A New Insider
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E05-S04E01---Jason-Rice-speaks-to-Jay-Weidner----2018-09-25--Jason-Rice---A-New-Insider:b
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E05-S04E01---Jason-Rice-speaks-to-Jay-Weidner----2018-09-25--Jason-Rice---A-New-Insider#b
+
+
+    Cosmic Disclosure S12E04 S03E03 - Emery Smith speaks to George Noory - [2018-09-18] Interdimensional Light Beings
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E04-S03E03---Emery-Smith-speaks-to-George-Noory----2018-09-18--Interdimensional-Light-Beings:a
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E04-S03E03---Emery-Smith-speaks-to-George-Noory----2018-09-18--Interdimensional-Light-Beings#a
+
+
+    Cosmic Disclosure S12E02 S03E02 - Emery Smith speaks to George Noory - [2018-09-04] Disinformation Tactics
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E02-S03E02---Emery-Smith-speaks-to-George-Noory----2018-09-04--Disinformation-Tactics:7
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E02-S03E02---Emery-Smith-speaks-to-George-Noory----2018-09-04--Disinformation-Tactics#7
+
+
+    Cosmic Disclosure S12E01 S03E01 - Emery Smith speaks to George Noory - [2018-08-28] Time Travel & Shifting Realities
+
+https://odysee.com/@ThatStrangeSideOfTheGarden:a/Cosmic-Disclosure-S12E01-S03E01---Emery-Smith-speaks-to-George-Noory----2018-08-28--Time-Travel---Shifting-Realities:3?lid=93e193091fef1d67a339fb10f4b6fa19d57892cc
+lbry://@ThatStrangeSideOfTheGarden#a/Cosmic-Disclosure-S12E01-S03E01---Emery-Smith-speaks-to-George-Noory----2018-08-28--Time-Travel---Shifting-Realities#3
+
+
+Posted by lbry://@CosmicDisclosure#7:
+
+
+    Cosmic Disclosure - Season 20 Episode 01 - Richard Doty - Trantaloid
+
+https://odysee.com/@CosmicDisclosure:7/COSMIC-DISCLOSURE-S20E01-Trantaloid:c
+lbry://@CosmicDisclosure#7/COSMIC-DISCLOSURE-S20E01-Trantaloid#c
+
+
+
+Posted by lbry://@Starseed#6:
+
+    Cosmic Disclosure S16E1 - Reptilians & Reptoids Diplomatic & Military Perspectives
+
+https://odysee.com/@Starseed:6/Cosmic-Disclosure-S16E1---Reptilians---Reptoids-Diplomatic---Military-Perspectives:a
+lbry://@Starseed#6/Cosmic-Disclosure-S16E1---Reptilians---Reptoids-Diplomatic---Military-Perspectives#a
+
+
+    Cosmic Disclosure S16E2 - Time Wars & Progenitor ET Influences
+
+https://odysee.com/@Starseed:6/Cosmic-Disclosure-S16E2-Time-Wars-Progenitor-ET-Influences:c
+lbry://@Starseed#6/Cosmic-Disclosure-S16E2-Time-Wars-Progenitor-ET-Influences#c
+
+
+    Cosmic Disclosure S16E3 - Redirecting Timelines
+
+https://odysee.com/@Starseed:6/Cosmic-Disclosure-S16E3-Redirecting-Timelines:f
+lbry://@Starseed#6/Cosmic-Disclosure-S16E3-Redirecting-Timelines#f
+
+
+    Cosmic Disclosure S16E4 - Reptilian Installations on Earth
+
+https://odysee.com/@Starseed:6/Cosmic-Disclosure-S16E4---Reptilian-Installations-on-Earth:6
+lbry://@Starseed#6/Cosmic-Disclosure-S16E4---Reptilian-Installations-on-Earth#6
+
+
+Posted by lbry://@Rawd#b:
+
+
+    Gaia - Cosmic Disclosure : The Galactic Federation Redefined
+
+https://odysee.com/@Rawd:b/gaiagalacticfederation:a
+lbry://@Rawd#b/gaiagalacticfederation#a
+
+
+    Gaia - Cosmic Disclosure : Reptilians & Reptoids - Diplomatic & Military Perspectives
+
+https://odysee.com/@Rawd:b/gaiareptilreptoiddipmil:1
+lbry://@Rawd#b/gaiareptilreptoiddipmil#1
+
+
+Posted by: lbry://@InterestingTimes#e:
+
+    COSMIC DISCLOSURE S04E05 - VOICE OF GOD TECHNOLOGY
+
+https://odysee.com/@InterestingTimes:e/Christian-Zionism-The-Antichrists-Rewrite-of-History--The-Scofield-Bible-is-a-LIE:6
+lbry://@InterestingTimes#e/Christian-Zionism-The-Antichrists-Rewrite-of-History--The-Scofield-Bible-is-a-LIE#6
+
+
+Posted by Anonymous:
+
+
+    COSMIC DISCLOSURE S20E13 Emery Smith Randy Cramer Aghartska sit
+
+https://odysee.com/COSMIC-DISCLOSURE.S20E13.Emery-Smith-Randy-Cramer.Aghartska-sit:2
+lbry://COSMIC-DISCLOSURE.S20E13.Emery-Smith-Randy-Cramer.Aghartska-sit#2
+
+
+    COSMIC DISCLOSURE S20E12 Emery Smith Randy Cramer Avatar Tech
+
+https://odysee.com/COSMIC-DISCLOSURE.S20E12.Emery-Smith-Randy-Cramer.Technology-Avatar:6
+lbry://COSMIC-DISCLOSURE.S20E12.Emery-Smith-Randy-Cramer.Technology-Avatar#6
+
+
+    COSMIC DISCLOSURE S20E11 Emery Smith Randy Cramer Galactic threats
+
+https://odysee.com/COSMIC-DISCLOSURE.S20E11.Emery-Smith-Randy-Cramer.Galactic-threats:0
+lbry://COSMIC-DISCLOSURE.S20E11.Emery-Smith-Randy-Cramer.Galactic-threats#0
+
+
+    COSMIC DISCLOSURE S20E10 Emery Smith Randy Cramer News about advanced technologies
+
+https://odysee.com/COSMIC-DISCLOSURE.S20E10.Emery-Smith-Randy-Cramer.News-about-advanced-technologies:c
+lbry://COSMIC-DISCLOSURE.S20E10.Emery-Smith-Randy-Cramer.News-about-advanced-technologies#c
+
+
+    Interdimensional Portals for Contact Cosmic Disclosure with Emery Smith S13:Ep1
+
+https://odysee.com/Cosmic-Disclousure-S13-Ep1:4
+lbry://Cosmic-Disclousure-S13-Ep1#4
+
 Season 1
 
 · Cosmic Disclosure - S01E01 - The Message for Humankind https://odysee.com/@davidwilcockcoreygoodeweeklyshow:8/Cosmic-Disclosure---S01E01---The-Message-for-Humankind-HDTV-1080p-Compressed:f
