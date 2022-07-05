@@ -16,6 +16,8 @@ IP Address: 104.26.5.54
 Infringing URLs:
 https://odysee.com/@gonzalezmillan:0/KINEMASTER-PREMIUM-4.14-APK-DESBLOQUEADO:1?fbclid=IwAR3Ceekzwes53o8-eGkH9Z8xlXsEBWfdZmiBtQyjbDjrYbd9vMhvVM28m1k&sunset=lbrytv
 
+- https://odysee.com/@soloparati22:0/Doctor.Strange.in.the.Multiverse.of.Madness.2022.:d
+- https://odysee.com/@Montajes:0/Doctor-Strange-en-el-multiverso-de-la-locura-(2022)--BluRay-Rip--AC3-5.1-Castellano--www.nucleohd.com-:9
 - https://odysee.com/@PeliculasEstreno:1/Viuda-Negra-(2021)-Online-Latino-HD:f
 - https://odysee.com/@Chemtol:4/Muerte-en-el-Nilo-2022:9
 - https://odysee.com/Muerte-en-el-Nilo-(2az):c
