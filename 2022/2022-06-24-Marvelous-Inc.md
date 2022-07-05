@@ -3,6 +3,127 @@ To. odysee
 We request you to remove the video identified below from your site immediately.
 The copyright of the film below belongs to us and we have not licensed anyone to upload this video to your site.
 
+https://odysee.com/Tokyo-Ghoul-2x04-sub-espa%C3%B1ol:a [1]
+
+https://odysee.com/Tokyo-Ghoul-2x09-sub-espa%C3%B1ol:d [2]
+
+https://odysee.com/Tokyo-Ghoul-2x01-sub-espa%C3%B1ol:3 [3]
+
+https://odysee.com/Tokyo-Ghoul-2x06-sub-espa%C3%B1ol:8 [4]
+
+https://odysee.com/Tokyo-Ghoul-2x05-sub-espa%C3%B1ol:6 [5]
+
+https://odysee.com/Tokyo-Ghoul-2x07-sub-espa%C3%B1ol:6 [6]
+
+https://odysee.com/Tokyo-Ghoul-2x08-sub-espa%C3%B1ol:9 [7]
+
+https://odysee.com/Tokyo-Ghoul-2x02-sub-espa%C3%B1ol:2 [8]
+
+https://odysee.com/Tokyo-Ghoul-1x04-sub-espa%C3%B1ol:b [9]
+
+https://odysee.com/Tokyo-Ghoul-2x03-sub-espa%C3%B1ol:8 [10]
+
+https://odysee.com/Tokyo-Ghoul-3x04-sub-espa%C3%B1ol:c [11]
+
+https://odysee.com/Tokyo-Ghoul-2x12-sub-espa%C3%B1ol:7 [12]
+
+https://odysee.com/Tokyo-Ghoul-3x13-sub-espa%C3%B1ol:c [13]
+
+https://odysee.com/Tokyo-Ghoul-3x10-sub-espa%C3%B1ol:1 [14]
+
+https://odysee.com/Tokyo-Ghoul-3x19-sub-espa%C3%B1ol:3 [15]
+
+https://odysee.com/Tokyo-Ghoul-3x17-sub-espa%C3%B1ol:5 [16]
+
+https://odysee.com/Tokyo-Ghoul-3x23-sub-espa%C3%B1ol:d [17]
+
+https://odysee.com/Tokyo-Ghoul-3x15-sub-espa%C3%B1ol:a [18]
+
+https://odysee.com/Tokyo-Ghoul-3x16-sub-espa%C3%B1ol:7 [19]
+
+https://odysee.com/Tokyo-Ghoul-3x14-sub-espa%C3%B1ol:7 [20]
+
+https://odysee.com/Tokyo-Ghoul-3x22-sub-espa%C3%B1ol:0 [21]
+
+https://odysee.com/Tokyo-Ghoul-3x24-sub-espa%C3%B1ol:8 [22]
+
+https://odysee.com/Tokyo-Ghoul-3x21-sub-espa%C3%B1ol:a [23]
+
+https://odysee.com/Tokyo-Ghoul-3x20-sub-espa%C3%B1ol:6 [24]
+
+https://odysee.com/Tokyo-Ghoul-3x18-sub-espa%C3%B1ol:6 [25]
+
+https://odysee.com/Tokyo-Ghoul-3x01-sub-espa%C3%B1ol:5 [26]
+
+https://odysee.com/Tokyo-Ghoul-3x11-sub-espa%C3%B1ol:8 [27]
+
+https://odysee.com/Tokyo-Ghoul-1x10-sub-espa%C3%B1ol:f [28]
+
+https://odysee.com/Tokyo-Ghoul-2x10-sub-espa%C3%B1ol:a [29]
+
+https://odysee.com/@Steel598:b/tokyo-ghoul-amv-buried-x-lasoa:2 [30]
+
+https://odysee.com/@Steel598:b/amv-tokyo-ghoul-60-fps-2:1 [31]
+
+https://odysee.com/@EduarPlays:f/tokyo-ghoul-devil-eyes-amv:5 [32]
+
+https://odysee.com/@Steel598:b/amv-tokyo-ghoul-60-fps:a [33]
+
+https://odysee.com/@Mirabelsclips:6/Tokyo-Ghoul-Shuu-Tsukiyama-Scenes-For-Editing-(S1-E3-4)
+[34]:1
+
+https://odysee.com/@Mirabelsclips:6/ShuuScenes:5 [35]
+
+https://odysee.com/Tokyo-Ghoul-02S2:8 [36]
+
+https://odysee.com/@Larayedits:9/tokyo-ghoul-amv-2:7 [37]
+
+https://odysee.com/@Larayedits:9/kaneki-paper-plane:7 [38]
+
+https://odysee.com/@Larayedits:9/kaneki-amv:7 [39]
+
+https://odysee.com/@Larayedits:9/tokyo-ghoul-2:5 [40]
+
+https://odysee.com/@Larayedits:9/tokyo-ghoul:a8 [41]
+
+https://odysee.com/@Larayedits:9/angsty-tokyo-ghoul-edit:6 [42]
+
+https://odysee.com/@Larayedits:9/haise:2 [43]
+
+https://odysee.com/@stubby:e/king-tokyo-ghoul-amv:c [44]
+
+https://odysee.com/@Larayedits:9/rize:d [45]
+
+https://odysee.com/@Larayedits:9/rip-kaneki:0 [46]
+
+https://odysee.com/@Larayedits:9/my-demons:e [47]
+
+https://odysee.com/@AnimePosts:6/Tokyo-Goul-Opening-Unravel:6 [48]
+
+https://odysee.com/@Baka.senpai:9/tokyo-ghoul-edite:2 [49]
+
+https://odysee.com/@IB-Take1:4/YouCut_20220402_173835123_my1:6 [50]
+
+https://odysee.com/@Derago_PC:5/Tokyo-Ghoul-S1-Cap-10-Latino:f [51]
+
+https://odysee.com/@stubby:e/complaining-lieu:4 [52]
+
+https://odysee.com/@stubby:e/save-me-tokyo-ghoul-edit:1 [53]
+
+https://odysee.com/@stubby:e/threat-tokyo-ghoul-edit:4 [54]
+
+https://odysee.com/@Larayedits:9/jae-ha:d [55]
+
+https://odysee.com/@Larayedits:9/hak-plot-twist:6 [56]
+
+https://odysee.com/@Larayedits:9/open-collab-2:8 [57]
+
+https://odysee.com/@Larayedits:9/open-collab:2 [58]
+
+https://odysee.com/@Larayedits:9/duo:a [59]
+
+https://odysee.com/@Larayedits:9/hak-amv-yona-of-the-dawn:3 [60]
+
 URL:
 https://odysee.com/@AvatarSeries:7/Capeta-48:a
 
