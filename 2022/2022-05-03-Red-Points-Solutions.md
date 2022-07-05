@@ -17,6 +17,9 @@ Infringing URLs:
 https://odysee.com/@gonzalezmillan:0/KINEMASTER-PREMIUM-4.14-APK-DESBLOQUEADO:1?fbclid=IwAR3Ceekzwes53o8-eGkH9Z8xlXsEBWfdZmiBtQyjbDjrYbd9vMhvVM28m1k&sunset=lbrytv
 
 - https://odysee.com/@PeliculasEstreno:1/Viuda-Negra-(2021)-Online-Latino-HD:f
+- https://odysee.com/@Chemtol:4/Muerte-en-el-Nilo-2022:9
+- https://odysee.com/Muerte-en-el-Nilo-(2az):c
+- https://odysee.com/Muerte-en-el-Nilo-2022-hd-latino:a
 - https://odysee.com/Les-Eternels-2021-(The-Eternals)-Truefrench-Bluray-Audio-HQ:51f325baa545775b1a712de309b6d45400ec78d6
 - https://odysee.com/@FMOVIES:6/Doctor.Strange.in.the.Multiverse.of.Madness.FMOVIES:6
 - https://odysee.com/@lyrakasira:0/The-King's-Man:4
