@@ -32,8 +32,6 @@ https://odysee.com/@hm1122_:0/Propaganda-EXPOSED!-MODERN-DAY-ROBBER-BARONS-EPISO
 
 https://odysee.com/@hm1122_:0/Propaganda-EXPOSED!-DEFEATING-DECEIT---TRIUMPHING-OVER-TYRANNY-EPISODE-8:1
 
-https://theexpertsarelying.substack.com/p/propaganda-exposed-series
-
 https://odysee.com/@TheExpertsAreLying:5/Propaganda-Exposed-Ep1:8?r=HQyRNc8hQDnqoZkngk14tgfhNz6NNXmM
 
 https://theexpertsarelying.substack.com/i/60122207/propaganda-exposed-mini-series-episode-2-some-wars-arent-meant-to-be-won
