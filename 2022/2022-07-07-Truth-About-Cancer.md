@@ -2,6 +2,46 @@ To Whom It May Concern,
 
 I am reaching out on behalf of my company, the copyright owner, to ask that you take down the following videos immediately.
 
+https://odysee.com/@bonniesmit:0/352-PROPAGANDA-EXPOSED---Episode-8---DEFEATING-DECEIT---TRIUMPHING-OVER-TYRANNY---9th-MAY-2022:e
+
+https://odysee.com/@bonniesmit:0/PROPAGANDA-EXPOSED---Episode-7---MODERN-DAY-ROBBER-BARONS---10th-MAY-2022:a
+
+https://odysee.com/@bonniesmit:0/PROPAGANDA-EXPOSED---Episode-6---FORCED-MEDICINE---THE-BANKING-CARTEL---10th-MAY-2022:0
+
+https://odysee.com/@bonniesmit:0/PROPAGANDA-EXPOSED---Episode-5---BIG-%E2%80%9CPHARMA-CIDE%E2%80%9D-9th-MAY-2022:c
+
+https://odysee.com/@bonniesmit:0/PROPAGANDA-EXPOSED---Episode-3---WEAPONIZING-FEAR---MANDATING-COMPLIANCE:0
+
+https://odysee.com/@bonniesmit:0/346-Propaganda-EXPOSED!-SOME-WARS-AREN%E2%80%99T-MEANT-TO-BE-WON-Episode-2:b
+
+https://odysee.com/@bonniesmit:0/345-Propaganda-Exposed---Episode-1---QUESTION-EVERYTHING!---4th-May-2022:5
+
+https://odysee.com/@AdroitTeam:5/PropagandaExposed3:9
+
+https://odysee.com/@bonniesmit:0/PROPAGANDA-EXPOSED---Episode-3---WEAPONIZING-FEAR---MANDATING-COMPLIANCE:0
+
+https://odysee.com/@I-Rabbi-T:3/2-Propagand-Exposed---Some-Wars-Aern't-Meant-To-Be-Won:5
+
+https://odysee.com/@I-Rabbi-T:3/6-Propaganda-Exposed---Forced-Medicine---The-Banking-Cartel:5
+
+https://odysee.com/@My_truth:f/Propaganda-Exposed---Episode-3-WEAPONIZING-FEAR---MANDATING-COMPLIANCE:5
+
+https://odysee.com/@My_truth:f/Propaganda-Exposed-Episode-2---SOME-WARS-AREN%E2%80%99T-MEANT-TO-BE-WON:7
+
+https://odysee.com/@My_truth:f/Propaganda-Exposed-Episode-1--QUESTION-EVERYTHING!:2
+
+https://odysee.com/@TruthSeeker:31/PE-Episode-1_version-4_720.mp4:2
+
+https://odysee.com/@TruthSeeker:31/PE-Episode-6-version5_720.mp4:0
+
+https://odysee.com/@TruthSeeker:31/PE-Episode-7_version-5_720.mp4:2
+
+https://odysee.com/@TruthSeeker:31/PE-episode-2-version_5_720.mp4:0
+
+https://odysee.com/@TruthSeeker:31/PE-Episode-3_version_5_720.mp4:1
+
+https://odysee.com/@TruthSeeker:31/PE-Episode-5_version-5_720.mp4:b
+
 https://odysee.com/@NewsParadigm:f/PE-Episode-8_version5_720-mp4---updated-version:7
 
 https://odysee.com/@bonniesmit:0/PROPAGANDA-EXPOSED---Episode-4---EUGENICS---MEDICAL-APARTHEID:7
