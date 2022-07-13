@@ -5,8 +5,8 @@ An audiobook was copied onto your servers without permission. The original audio
 https://www.scribd.com/audiobook/505809369/Virus-Mania-Corona-COVID-19-Measles-Swine-Flu-Cervical-Cancer-Avian-Flu-SARS-BSE-Hepatitis-C-AIDS-Polio-Spanish-Flu-How-the-Medical-Indust
 
 The unauthorized and infringing copy can be found at:
-
-https://odysee.com/@SaintOlga69:5/VirusManiaAudiobook:a?r=Hi235fbeSxXgEvHPARxCiew2F8RbaKHc
+- https://odysee.com/@SaintOlga69:5/VirusManiaAudiobook:a?r=Hi235fbeSxXgEvHPARxCiew2F8RbaKHc
+- https://odysee.com/@ThinkOutsideTheGlobe:b/Virus-Mania.-CoronaCOVID-19,-Measles,-Swine-Flu-Carvical-Cancer:e
 
 This letter is official notification under Section 512(c) of the Digital Millennium Copyright Act ("DMCA"), and I seek the removal of the aforementioned infringing material from your servers. I request that you immediately notify the infringer of this notice and inform them of their duty to remove the infringing material immediately, and notify them to cease any further posting of infringing material to your server in the future.
 
