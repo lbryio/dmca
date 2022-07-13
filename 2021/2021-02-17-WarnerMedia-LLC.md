@@ -23,6 +23,7 @@ agent@warnerbros.copyright-notice.com
 What was located as infringing content:
 
 --------------------------------------------------
+- https://odysee.com/@BarryDutton:8/The-Anarchists-Ep1-HBO-series:2
 - https://lbry.tv/@MaChaineTest2:4/Autant-En-Emporte-Le-Vent-1939-:9
 - https://odysee.com/@Pelisymas:c/Juego-de-Tronos-1x03--Mega-Descargas-:0?&sunset=lbrytv
 - https://odysee.com/@QQFILMES:b?view=about
