@@ -23,6 +23,9 @@ agent@warnerbros.copyright-notice.com
 What was located as infringing content:
 
 --------------------------------------------------
+- https://odysee.com/@Frank.ford712:5/Green-Lantern-Beware-My-Power-(2022):d
+- https://odysee.com/@stpierrs:f/The-Anarchists-Ep1:1
+- https://odysee.com/@williamblake1971:2?view=content
 - https://odysee.com/@BarryDutton:8/The-Anarchists-Ep1-HBO-series:2
 - https://lbry.tv/@MaChaineTest2:4/Autant-En-Emporte-Le-Vent-1939-:9
 - https://odysee.com/@Pelisymas:c/Juego-de-Tronos-1x03--Mega-Descargas-:0?&sunset=lbrytv
