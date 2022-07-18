@@ -19,6 +19,281 @@ WarnerMedia
 Director WW Online Enforcement
 <personal information extraxted>
 agent@warnerbros.copyright-notice.com
+  
+Batman
+
+https://odysee.com/@SESSAODECASA:4/bt:c6
+
+Game of Thrones
+
+https://odysee.com/@tattoowomanx:5/05-3-08-ING:b
+
+Riverdale
+
+https://odysee.com/Riverdale_S02E02_480p_HDTV_RMTeam_-RoseMovie-:f
+
+Scooby Doo
+
+https://odysee.com/@CartoonDepot:f/Scooby-Doo---S01e02:c
+  
+GATE
+
+https://odysee.com/@GATE-Temporada-1:7/GATE-08:7
+
+People of Earth
+
+https://odysee.com/@UFOmotion:f/S02E01-Gens-de-la-Terre:e
+
+Rick and Morty
+
+https://odysee.com/daa-rick.and.morty.s01e10-sd:0
+
+Scooby Doo
+
+https://odysee.com/@CartoonDepot:f/Scooby-Doo---S01e09:6
+
+https://odysee.com/@CartoonDepot:f/Scooby-Doo---S01e04:0
+
+https://odysee.com/@CartoonDepot:f/Scooby-Doo---S01e03:3
+
+https://odysee.com/@CartoonDepot:f/Scooby-Doo---S02e08:8
+
+https://odysee.com/@CartoonDepot:f/Scooby-Doo---S01e07:4
+
+The Big Bang Theory
+
+https://odysee.com/@The-Bit-Bang-Theory:0/big-bang-2-41:3
+
+https://odysee.com/@The-Bit-Bang-Theory:0/BIG-BAMG-2-11:9
+
+The Flintstones
+
+https://odysee.com/@TVWorld:6/Flintstones---S05e09-(The-Gruesomes):b
+
+You Don't Know Jack
+
+https://odysee.com/@DS_FatCat:8/Doktor-Smrt-2010-CZ:6
+
+
+Young Justice
+
+https://odysee.com/@Luffyiscool:e/luffy-reacts-young-justice-s1e11-terrors:c
+  
+Batman v Superman: Dawn of Justice
+
+https://odysee.com/@OriginDKI:b/BvsS:5
+
+Rick and Morty
+
+https://odysee.com/daa-rick.and.morty.s01e02-sd:7
+
+Scooby Doo
+
+https://odysee.com/@CartoonDepot:f/Scooby-Doo---S01e05:8
+
+https://odysee.com/@CartoonDepot:f/Scooby-Doo---S01e11:e
+
+https://odysee.com/@CartoonDepot:f/Scooby-Doo---S01e16:d
+
+Seinfeld
+
+https://odysee.com/@Ten_Daze:3/SE9-E18-The-Frogger:7
+
+https://odysee.com/@Ten_Daze:3/SE8-E18-The-Nap:1
+
+The Big Bang Theory
+
+https://odysee.com/@The-Bit-Bang-Theory:0/big-bang-2-10:e
+
+https://odysee.com/@The-Bit-Bang-Theory:0/big-bang-2-7:f
+
+https://odysee.com/Batman-v-Superman:b
+
+Westworld
+
+https://odysee.com/@chansons:a/S%C3%A9rie-Science-fiction-S2-E9:4
+
+https://odysee.com/@chansons:a/S%C3%A9rie-Science-fiction-S2-E8:9
+
+https://odysee.com/@chansons:a/S%C3%A9rie-Science-fiction-S2-E7:6
+
+https://odysee.com/@chansons:a/S%C3%A9rie-Science-fiction-S2-E6:8
+
+https://odysee.com/@chansons:a/S%C3%A9rie-Science-fiction-S2-E5:2
+
+https://odysee.com/@chansons:a/S%C3%A9rie-Science-fiction-S2-E1:5
+
+https://odysee.com/@chansons:a/S%C3%A9rie-Science-fiction-S2-E4:0
+
+https://odysee.com/@chansons:a/S%C3%A9rie-Science-fiction-S2-E3:c
+
+https://odysee.com/@chansons:a/S%C3%A9rie-Science-fiction-S2-E2:4
+
+https://odysee.com/@chansons:a/S%C3%A9rie-Science-fiction-S2-E10.FiNAL:f
+
+https://odysee.com/@chansons:a/Westworld.S01E09:a
+
+https://odysee.com/@chansons:a/Westworld.S01E08:5
+
+https://odysee.com/@chansons:a/Westworld.S01E06:0
+
+https://odysee.com/@chansons:a/Westworld.S01E07:8
+
+https://odysee.com/@chansons:a/Westworld.S01E10.FiNAL:c
+
+https://odysee.com/@chansons:a/Westworld.S01E01:cb
+
+https://odysee.com/@chansons:a/Westworld.S01E05:1
+
+https://odysee.com/@chansons:a/Westworld.S01E03:3
+
+https://odysee.com/@chansons:a/Westworld.S01E04:a
+
+https://odysee.com/@chansons:a/Westworld.S01E02:d
+
+https://odysee.com/@williamblake1971:2/Westworld.S03E08.FiNAL.FRENCH.720p.AMZN.WEB-DL.DD5.1.H264-Wawacity.ninja:a
+
+https://odysee.com/@williamblake1971:2/Westworld.S03E07.FRENCH.1080p.AMZN.WEB-DL.DD5.1.H264-Wawacity.ninja:9
+
+https://odysee.com/@williamblake1971:2/Westworld.S03E04.REPACK.FRENCH.AMZN.WEB-DL.Xvid-Wawacity.ninja:9
+
+https://odysee.com/@williamblake1971:2/Westworld.S03E02.FRENCH.WEBRip.x264-Wawacity.ninja:a
+
+https://odysee.com/@williamblake1971:2/Westworld.S03E03.FRENCH.HDTV.x264-Wawacity.ninja:d
+
+https://odysee.com/@williamblake1971:2/Westworld.S03E06.FRENCH.WEBRip.Xvid-Wawacity.ninja:4
+
+https://odysee.com/@williamblake1971:2/Westworld.S03E05.FRENCH.WEBRip.x264-Wawacity.ninja:c
+
+https://odysee.com/@williamblake1971:2/Westworld.S03E01.FRENCH.WEB.XviD-Wawacity.ninja:8
+
+https://odysee.com/@chansons:a/Westworld.S01E08:5
+
+https://odysee.com/@chansons:a/Westworld.S01E06:0
+
+https://odysee.com/@chansons:a/Westworld.S01E02:d
+
+https://odysee.com/@chansons:a/Westworld.S01E04:a
+
+https://odysee.com/@chansons:a/Westworld.S01E01:cb
+
+https://odysee.com/@williamblake1971:2/Westworld.S03E06.FRENCH.WEBRip.Xvid-Wawacity.ninja:4
+
+https://odysee.com/@williamblake1971:2/Westworld.S03E04.REPACK.FRENCH.AMZN.WEB-DL.Xvid-Wawacity.ninja:9
+
+https://odysee.com/@chansons:a/Westworld.S01E10.FiNAL:c
+
+https://odysee.com/@chansons:a/Westworld.S01E07:8
+
+https://odysee.com/@chansons:a/Westworld.S01E09:a
+
+https://odysee.com/@chansons:a/Westworld.S01E05:1
+
+https://odysee.com/@williamblake1971:2/Westworld.S03E08.FiNAL.FRENCH.720p.AMZN.WEB-DL.DD5.1.H264-Wawacity.ninja:a
+
+https://odysee.com/@williamblake1971:2/Westworld.S03E02.FRENCH.WEBRip.x264-Wawacity.ninja:a
+
+https://odysee.com/@williamblake1971:2/Westworld.S03E05.FRENCH.WEBRip.x264-Wawacity.ninja:c
+
+https://odysee.com/@williamblake1971:2/Westworld.S03E01.FRENCH.WEB.XviD-Wawacity.ninja:8
+
+https://odysee.com/@williamblake1971:2/Westworld.S03E07.FRENCH.1080p.AMZN.WEB-DL.DD5.1.H264-Wawacity.ninja:9
+  
+The Anarchists
+
+https://odysee.com/@BarryDutton:8/The-Anarchists-Ep1-HBO-series:2
+
+https://odysee.com/@stpierrs:f/The-Anarchists-Ep1:1
+
+Harry Potter and the Goblet of Fire
+
+https://odysee.com/@Strefa_Chillu:8/4-Harry-Potter-i-Czara-Ognia-(2005)-Lektor-PL:4
+
+Westworld
+
+https://odysee.com/@westworldhbo:7/Westworld.S01E01:c
+
+Batman v Superman: Dawn of Justice
+
+https://odysee.com/@stpierrs:f/Watch-Batman-V-Superman-Dawn-Of-Justice-Online--Watch-Full-Batman-V-Superman-Dawn-Of-Justice-(2016)-:e
+
+Dirty Harry
+
+https://odysee.com/@ReluctantMystic:7/Dirty-Harry1971:b
+  
+https://odysee.com/@Aisha(AS):f/Alderamin-on-the-Sky-(Dub)-Episode-011-r560.1:a 
+  
+Gran Torino
+
+https://odysee.com/@ClintEastwood:d/Gran-Torino-2009-(360):b
+
+Harry Potter and the Deathly Hallows Part 2
+
+https://odysee.com/www.verydescargarpelicula.com_Harry.Potter.and.the.Deathly.Hallows.Part.2.dvdrip.latino-001:2
+
+Me Before You
+
+https://odysee.com/@Narrator:3/Ein-Ganzes-Halbes-Jahr-2016--ac3--bdrip--x264--1:d
+
+The Flintstones
+
+https://odysee.com/@TVWorld:6/Flintstones---S06e19-(The-Treasure-Of-Sierra-Madrock):6 
+  
+https://odysee.com/@Films-Movie-1:e/Kenshin-Rurouni-3-La-Fin-De-La-Legende-FR-2014:8
+  
+https://odysee.com/The-Batman:48
+
+https://odysee.com/@FMOVIES:6/The.Batman.FMOVIES:a
+
+Harry Potter and the Prisoner of Azkaban
+
+https://odysee.com/@MeinFilmKanal:2/harry-potter-und-der-gefangene-von-askaban:c
+
+Harry Potter and the Sorcerer's Stone
+
+https://odysee.com/@CineSyNFilms:b/Harry.Potter.and.the.Sorcerers.Stone.2001.E.L:9
+
+The Batman
+
+https://odysee.com/@Vineet2:4/The-Batman-2022-BluRay-720p-Hindi:5  
+  
+Harry Potter and the Order of the Phoenix
+
+https://odysee.com/@CineSyNFilms:b/Harry.Potter.and.the.Order.of.the.Phoenix.2007.E.L:f
+
+The Batman
+
+https://odysee.com/@Pocketflix:5/The-Batman-(2022):57
+
+https://odysee.com/@Movie:99/The.Batman.:9
+
+https://odysee.com/@HDmovies:5/The.Batman:b
+
+https://odysee.com/@evil:0/777fd1:8
+
+The Dark Knight
+
+https://odysee.com/@luisnuz:e/darnight:e
+
+Harry Potter and the Sorcerer's Stone
+
+https://odysee.com/@MeinFilmKanal:2/harry-potter-und-der-stein-der-weisen:1
+
+I Am Legend
+
+https://odysee.com/@Alpha77:3/0fba13:
+  
+Batman
+
+https://odysee.com/@billymountnisei:8/Batman.Gotham.Knight.2008.720p.BRrip.x264---trimmed-(online-video-cutter.com)-(1):c
+
+The Batman
+
+https://odysee.com/The.Batman-(2022)-hd-fr:5
+
+The Big Bang Theory
+
+https://odysee.com/@The-Bit-Bang-Theory:0/Big_Bang-3:e
 
 What was located as infringing content:
 
