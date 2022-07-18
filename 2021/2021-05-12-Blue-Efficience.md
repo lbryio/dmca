@@ -44,6 +44,7 @@ Hereunder is provided the list of URLs giving access to the copyrighted
 work.
 Each of these URLs loads a web page that allows to launch the download of
 the copyrighted work.
+- https://odysee.com/@QAmiral:9/Un.President.L.Europe.Et.La.Guerre.2022-1:4
 - https://odysee.com/@jojodu54:c/NOSSO-LAR:e
 - https://odysee.com/21a:3
 - https://odysee.com/22a:35
