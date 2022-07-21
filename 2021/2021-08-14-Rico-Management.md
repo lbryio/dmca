@@ -23,6 +23,16 @@ I believe that the following materials are infringing:
 - https://odysee.com/@AVisionDarkly%3Ab/Toolthegrudge%3Af [6]
 - https://odysee.com/@AVisionDarkly%3Ab/Toolthepatient%3A3 [7]
 - https://odysee.com/@AVisionDarkly%3Ab/Toolticksleeches%3Aa [8]
+- https://odysee.com/@AVisionDarkly%3Ab/Toolaenema%3A0 [2]
+- https://odysee.com/@AVisionDarkly%3Ab/Toolfortysixandtwo%3Ad [3]
+- https://odysee.com/@AVisionDarkly%3Ab/Toolh%3A5 [4]
+- https://odysee.com/@AVisionDarkly%3Ab/Toolhookerwithapenis%3A5 [5]
+- https://odysee.com/@AVisionDarkly%3Ab/Tooljimmy%3Ab [6]
+- https://odysee.com/@AVisionDarkly%3Ab/Toolpushit%3Ac [7]
+- https://odysee.com/@AVisionDarkly%3Ab/Toolstinkfist%3A2 [8]
+- https://odysee.com/@AVisionDarkly%3Ab/Toolsulogy%3A2 [9]
+- https://odysee.com/@AVisionDarkly%3Ab/Toolthirdeye%3Ad [10]
+
 
 I have a good faith belief that use of the materials in the manner complained of is not authorized by the copyright owner, its agent, or the law. I demand that odysee.com acts expeditiously to remove or disable access to the material claimed to be infringing.
 
