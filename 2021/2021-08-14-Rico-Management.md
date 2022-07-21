@@ -16,6 +16,13 @@ I believe that the following materials are infringing:
 - https://odysee.com/@GhostXGaming%3A3/%E3%80%90%E6%98%8E%E6%97%A5%E6%96%B9%E8%88%9Fx%E9%9F%B3%E5%BE%8B%E8%81%AF%E8%A6%BA%E3%80%91monster%3A5
 - https://odysee.com/@GhostXGaming%3A3/%E3%80%90%E6%98%8E%E6%97%A5%E6%96%B9%E8%88%9Fx%E9%9F%B3%E5%BE%8B%E8%81%AF%E8%A6%BA%E3%80%91monster%3A5?sunset=lbrytv
 - https://odysee.com/@GhostXGaming%3A3/Unbecoming-Starset-%E9%9F%B3%E5%BE%8B%E8%81%AF%E8%A6%BA%E7%8D%BB%E5%94%B1%E7%89%88%3A9
+- https://odysee.com/@AVisionDarkly%3Ab/Toollateralus%3Ae [2]
+- https://odysee.com/@AVisionDarkly%3Ab/Toolparabol%3Ac [3]
+- https://odysee.com/@AVisionDarkly%3Ab/Toolparabola%3Ab [4]
+- https://odysee.com/@AVisionDarkly%3Ab/Toolschism%3Ad [5]
+- https://odysee.com/@AVisionDarkly%3Ab/Toolthegrudge%3Af [6]
+- https://odysee.com/@AVisionDarkly%3Ab/Toolthepatient%3A3 [7]
+- https://odysee.com/@AVisionDarkly%3Ab/Toolticksleeches%3Aa [8]
 
 I have a good faith belief that use of the materials in the manner complained of is not authorized by the copyright owner, its agent, or the law. I demand that odysee.com acts expeditiously to remove or disable access to the material claimed to be infringing.
 
