@@ -20,6 +20,36 @@ Director WW Online Enforcement
 <personal information extraxted>
 agent@warnerbros.copyright-notice.com
 
+
+Gremlins 2 The New Batch
+
+https://odysee.com/@koko:6/Gremlins-2:44
+
+
+Westworld
+
+https://odysee.com/@Rex_Colt:b/WestworldS01E07:5
+
+https://odysee.com/@Rex_Colt:b/WestworldS02E02:2
+
+https://odysee.com/@Rex_Colt:b/WestworldS01E09:a
+
+https://odysee.com/@Rex_Colt:b/WestworldS02E05:6
+
+https://odysee.com/@Rex_Colt:b/WestworldS02E01:4
+
+https://odysee.com/@Rex_Colt:b/WestworldS02E04:5
+
+https://odysee.com/@Rex_Colt:b/WestworldS02E10:0
+
+https://odysee.com/@Rex_Colt:b/WestworldS01E10:4
+
+https://odysee.com/@Rex_Colt:b/WestworldS03E02:9
+
+https://odysee.com/@Rex_Colt:b/WestworldS01E08:2
+
+https://odysee.com/@Rex_Colt:b/WestworldS01E01:3  
+  
 The Anarchists
 
 https://odysee.com/@TruthSpeak:a/The-Anarchists-S01-E02:5
