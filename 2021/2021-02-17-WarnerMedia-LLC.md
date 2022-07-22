@@ -19,6 +19,44 @@ WarnerMedia
 Director WW Online Enforcement
 <personal information extraxted>
 agent@warnerbros.copyright-notice.com
+
+The Anarchists
+
+https://odysee.com/@TruthSpeak:a/The-Anarchists-S01-E02:5
+
+https://odysee.com/@januszkowalskii1979:e/The-Anarchists---Anarchapulco-Documentary-pt2:6
+
+https://odysee.com/@breadcrumbs.2.satori:2/theAnarchistsS01E01:e
+
+https://odysee.com/@WisdomTheater3000:6/The.Anarchists.S01E02:6
+
+
+Westworld
+
+https://odysee.com/@DerWegZurWahrheit:1/Westworld---Lichtfalle:6
+
+The Anarchists
+- https://odysee.com/@TruthSpeak:a/The-Anarchists-S01-E02:5
+- https://odysee.com/@DollarVigilante:b/The-Anarchists-VIDEO:d
+- https://odysee.com/@WisdomTheater3000:6/The.Anarchists.S01E02:6
+- https://odysee.com/@januszkowalskii1979:e/The-Anarchists---Anarchapulco-Documentary-pt2:6
+- https://odysee.com/@wakethefup:5/THE-ANARCHISTS...-AND-THE-CALM-BEFORE-THE-STORM:2
+- https://odysee.com/@Rex_Colt:b/The-Anarchists-JeffBerwick:1
+- https://odysee.com/@breadcrumbs.2.satori:2/theAnarchistsS01E01:e
+- https://odysee.com/@Chaine73:9/The-Anarchists-VIDEO-Under-2GB:9
+- https://odysee.com/@januszkowalskii1979:e/Eye-of-the-Hurricane---The-Anarchists-and-the-Calm-Before-the-Storm:6
+
+https://odysee.com/@Gg17480:3/Westworld.S03E02:6
+
+https://odysee.com/@Gg17480:3/Westworld.S03e1:e
+
+https://odysee.com/@Gg17480:3/libry17:2
+
+https://odysee.com/@Gg17480:3/Westworld.S01E02:6
+
+Westworld
+- https://odysee.com/westworld-s04e04:a
+- https://odysee.com/@Gg17480:3/libry17:2
   
 Batman
 
