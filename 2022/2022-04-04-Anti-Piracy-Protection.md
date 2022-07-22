@@ -5,6 +5,22 @@ I am contacting you on behalf of Disney Enterprises, Inc. and/or its subsidiarie
 Copyrighted work(s) infringed upon:
 94th Academy Awards on ABC (2022)
 
+
+https://odysee.com/@Dragoneyecomix:7/Road-to-the-North-Pole:f
+
+https://odysee.com/@tuseriesfavoritas:6/Episodio-1:2
+
+https://odysee.com/@Awesome_Movies_JC:3/Cars-3-(2017):3 
+
+https://odysee.com/@Peliculasymas:8e/What-If-1x06-DUAL:a
+
+
+- https://odysee.com/@Strefa_Chillu:8/Gwiezdne-Wojny-Cz-5-Imperium-kontratakuje-(1980)-Dubbing-PL:e 
+- https://odysee.com/@Serie-VF-Vost.fr:b/Star-Wars-The-Clone-Wars-Vol-7X02-Fr:2 
+- https://odysee.com/@LuceroLarz:3/Gravity-Falls-(Un-Verano-de-Misterios)-T.01-E.13---La-Jefa-Mabel-(HD):1 
+- https://odysee.com/Onward-(2020)-Spanish-(720p)--movies.frigiliana.one-:4 
+- https://odysee.com/@Rex_Colt:b/TheXFilesS05E12BadBlood:1 
+
 Location of infringing material:
 - https://odysee.com/@qiwimedia:3/2197590510211:7
 - 
