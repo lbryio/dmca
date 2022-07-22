@@ -12,6 +12,10 @@ Authorization From Copyright Holder To Request Removal: Provided Upon Request
 
 I believe that the following materials are infringing:
 
+- https://odysee.com/%2540FMOVIES%253A6/Rubikon-2022-fmovies%253A5 [2]
+- https://odysee.com/%2540HDmovies%253A5/Rubikon-2022-hdmovies%253A7 [3]
+- https://odysee.com/%2540Movie%253A99/Rubikon-2022%253A9 [4]
+- https://odysee.com/%2540Movie-Fmovies%253A2/Rubikon-2022-%253A4 [5]
 - https://odysee.com/@GhostXGaming%3A3/%E3%80%90%E6%98%8E%E6%97%A5%E6%96%B9%E8%88%9Fx%E9%9F%B3%E5%BE%8B%E8%81%AF%E8%A6%BA%E3%80%91infected%3Ae
 - https://odysee.com/@GhostXGaming%3A3/%E3%80%90%E6%98%8E%E6%97%A5%E6%96%B9%E8%88%9Fx%E9%9F%B3%E5%BE%8B%E8%81%AF%E8%A6%BA%E3%80%91monster%3A5
 - https://odysee.com/@GhostXGaming%3A3/%E3%80%90%E6%98%8E%E6%97%A5%E6%96%B9%E8%88%9Fx%E9%9F%B3%E5%BE%8B%E8%81%AF%E8%A6%BA%E3%80%91monster%3A5?sunset=lbrytv
