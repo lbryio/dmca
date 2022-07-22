@@ -3,6 +3,30 @@ To. odysee
 We request you to remove the video identified below from your site immediately.
 The copyright of the film below belongs to us and we have not licensed anyone to upload this video to your site.
 
+URL:
+
+https://odysee.com/@Steel598:b/tokyo-ghoul-amv:d [1]
+
+https://odysee.com/@amvmaster:e/-Tokyo-Ghoul---Last-Resort-(Papa-Roach)
+[2]:9
+
+https://odysee.com/@Antoo:3/tokyo-ghoul-amv:1 [3]
+
+https://odysee.com/@Larayedits:9/tokyo-ghoul-amv:0 [4]
+
+https://odysee.com/@Revvenga:9/ready-or-not-tokyo-ghoul-amv:5 [5]
+
+https://odysee.com/@MasonGray2002:6/ptsd-amv-tokyo-ghoul:c [6]
+
+https://odysee.com/@animechonehdpro:2/tokyoghouljack:8 [7]
+
+https://odysee.com/@VolpFx:b/tokyo-ghoul-jack-arima-vs-minami:e [8]
+
+https://odysee.com/@gabrielfantasma8:e/tokyo-goul-latino:5 [9]
+
+https://odysee.com/@SadSoundcloud:f/lifeline94-where-is-the-love:e
+[10]
+
 https://odysee.com/Tokyo-Ghoul-2x04-sub-espa%C3%B1ol:a [1]
 
 https://odysee.com/Tokyo-Ghoul-2x09-sub-espa%C3%B1ol:d [2]
