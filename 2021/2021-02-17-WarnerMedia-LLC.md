@@ -19,7 +19,47 @@ WarnerMedia
 Director WW Online Enforcement
 <personal information extraxted>
 agent@warnerbros.copyright-notice.com
+  
+A Time to Kill
 
+https://odysee.com/Le-Droit-De-Tuer.-HD-:0
+
+Black Dynamite
+
+https://odysee.com/@Cozy:c/Black-Dynamite-S01E03:5
+
+China, IL
+
+https://odysee.com/@Cozy:c/China-IL-S03E09:4
+
+Chowder
+
+https://odysee.com/@Cozy:c/Chowder-S01E01:c
+  
+Mr. Pickles
+
+https://odysee.com/@pelispluz:e/mr-pickels-episodio-4-T1:9
+
+
+Westworld
+
+https://odysee.com/@Rex_Colt:b/Westworld-S01E06-The-Adversary:5
+
+https://odysee.com/@Rex_Colt:b/Westworld.S03E04.The.Mother.of.Exiles:9
+
+https://odysee.com/@Rex_Colt:b/Westworld-S02E06-Phase-Space:c
+
+https://odysee.com/Westworld.S03E01.720p.MP4.DUB.BaixarSeriesMP4.Org:4
+
+https://odysee.com/@Rex_Colt:b/Westworld.S03E05.Genre:b
+
+https://odysee.com/@Rex_Colt:b/Westworld.S03E06:2
+
+https://odysee.com/@Rex_Colt:b/Westworld.S03E07:a
+
+https://odysee.com/@Rex_Colt:b/Westworld.S03E08.Crisis.Theory:7
+
+https://odysee.com/@Rex_Colt:b/WestworldS03E01:6
 
 Gremlins 2 The New Batch
 
