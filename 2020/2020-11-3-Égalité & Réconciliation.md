@@ -19,3 +19,6 @@ Secrétaire national d'Égalité & Réconciliation
 
 lbry://@ReVibe#3/Le-Grand-Reset,-ou-le-grand-m\u00e9nage-_--3-Great-Reset---\u00c9cologie.mp4#0
   https://odysee.com/@romgab94:6/le-11-septembre-et-le-grand-jeu-israelien-720p:0
+  
+  https://odysee.com/@aksilwaragh:e/SAPTR--3-(Novembre-2017):4 
+  https://odysee.com/@GEPETO:9/soral-a-presque-toujours-raison-episode-19:d
