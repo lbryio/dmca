@@ -19,6 +19,75 @@ WarnerMedia
 Director WW Online Enforcement
 <personal information extraxted>
 agent@warnerbros.copyright-notice.com
+
+ https://odysee.com/WATCHMEN:e8   
+  
+Fantastic Beasts: The Secrets of Dumbledore
+
+https://odysee.com/@FMOVIES:6/Fantastic.Beasts.The.Secrets.of.Dumbledore-fmovies:1
+
+
+Mortal Kombat Legends: Scropion's Revenge
+
+https://odysee.com/@Gamesworld:20/Mortal.Kombat.Legends.Scorpions.Revenge.2020.720p.WEB-DL.6CH.x264.DUBLADO-LAPUMiA:5
+
+
+The Goonies
+
+https://odysee.com/@filmesantigos:bc/Os-Goonies-(1985)-BDrip-720p-Dublado-dat2014-Dj-Mayckel:f
+  
+Fantastic Beasts: The Secrets of Dumbledore
+
+https://odysee.com/@HDmovies:5/Fantastic.Beasts.The.Secrets.of.Dumbledore-hdmovies:3
+
+https://odysee.com/@Movie-Fmovies:2/Fantastic.Beasts.The.Secrets.of.Dumbledore-movies:6
+
+https://odysee.com/@Movie:99/Fantastic.Beasts.The.Secrets.of.Dumbledore-movie:0
+
+
+Father of the Bride
+
+https://odysee.com/El-padre-de-la-novia-(2az):b 
+
+https://odysee.com/@Series_TV_DC.C%C3%B3mics:9?view=content
+  
+  Batman
+
+https://odysee.com/@Not_your_typical_user:6/Batman.Gotham.Knight.2008.1080p.BRrip.x264.YIFY:b
+
+
+Fantastic Beasts And Where To Find Them
+
+https://odysee.com/@FilmsDystopique:0/Les-animaux-fantastiques0:d
+
+https://odysee.com/@Awesome_Movies_JC:3/Fantastic-Beasts-and-Where-to-Find-Them-(2016):1
+
+
+Fantastic Beasts: The Crimes Of Grindelwald
+
+https://odysee.com/@FilmsDystopique:0/LesAnimauxFantastiques:5
+
+
+Fantastic Beasts: The Secrets of Dumbledore
+
+https://odysee.com/@TheZocker:2/Phantastische-Tierwesen-Dumbledores-Geheimnisse-(2022)-Strea:2
+
+https://odysee.com/les_Secrets_de_Dumbledore_version_cam_pour-les-impatient:3
+
+
+Justice League vs. Teen Titans
+
+https://odysee.com/@arleyaguiar43:4/LIGDJSTVSTNTITNSUEA:d
+
+
+Mortal Kombat Legends: Scropion's Revenge
+
+https://odysee.com/todavia-creo-20:9
+
+
+The Anarchists
+
+https://odysee.com/sVgpFu3:0
   
 A Time to Kill
 
