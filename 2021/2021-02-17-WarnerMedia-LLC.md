@@ -20,6 +20,134 @@ Director WW Online Enforcement
 <personal information extraxted>
 agent@warnerbros.copyright-notice.com
 
+Contagion
+
+https://odysee.com/@vaccines-covid-nwo:3/Contagion.2011.720p.BluRay.X264.YIFY:3
+
+
+Hard to Kill
+
+https://odysee.com/@lovetowatchmovies:7/Hard-To-Kill-(1990):b
+
+
+Rurouni Kenshin
+
+https://odysee.com/@Films-Movie-1:e/Kenshin-Rurouni-1-Kenshin-Le-Vagabond-FR-2014:3
+
+
+The Last Boy Scout
+
+https://odysee.com/@kokakola:6/Film-Le-Dernier-samaritain:9
+ 
+Rebel Without a Cause
+
+https://odysee.com/@ThatsEntertainement:a/1955---Rebel.Without.A.Cause:e
+
+
+Sopranos
+
+https://odysee.com/@MyGarbageChannel:b/The-Sopranos-S02E02-Do-Not-Resuscitate:5 
+ 
+Arrow
+
+https://odysee.com/Arrow.S04e01:5
+
+Beowulf
+
+https://odysee.com/@DeifiedImmortal:0/Beowulf:af
+
+Harry Potter and the Prisoner of Azkaban
+
+https://odysee.com/Harry.Potter.E.O.Prisioneiro.De.Azkaban.2004.1080P-Wolverdonfilmes.Com-1:8
+
+
+Joker
+
+https://odysee.com/@Cuevana:4/joker:66 
+ 
+A Time to Kill
+
+https://odysee.com/1996.-A-Time-To-Kill:3
+
+Fantastic Beasts: The Crimes Of Grindelwald
+
+https://odysee.com/@Awesome_Movies_JC:3/Fantastic-Beasts-The-Crimes-of-Grindelwald-(2018):3
+
+
+Gothika
+
+https://odysee.com/Gothika:9 
+ 
+ Birds of Prey
+
+https://odysee.com/BIRDS-OF-PREY-(-2020-):3
+
+
+Harry Potter and the Sorcerer's Stone
+
+https://odysee.com/@Oldcrappymovies:9/Harry-Potter-and-the-Deathly-Weapons:6e
+ 
+ https://odysee.com/@Watchmov:0/Tenet.2020.720p.BluRay.x264.AAC--YTS.MX-:e  
+ 
+Contact
+
+https://odysee.com/@starfix:e/Contact-(1997):5
+
+
+Detective Chinatown 3
+
+https://odysee.com/DETECTIVE-CHINA-TOWN-3:e
+
+The Gauntlet
+
+https://odysee.com/@lovetowatchmovies:7/The-Gauntlet-(1977):2
+
+
+The Shining
+
+https://odysee.com/@ThatsEntertainement:a/1980---The.Shining:6
+
+
+Trick 'r Treat
+
+https://odysee.com/@SF_N_Horror:2/Trick-R-Treat:3
+
+https://odysee.com/@CineOpen:d/homem-formiga:1
+
+https://odysee.com/Aladdin.2019.1080p-dual-lat-cinecalidad.to-002:d
+
+https://odysee.com/X-Men--Dark-Phoenix:f
+
+ 
+Batman v Superman: Dawn of Justice
+
+https://odysee.com/@Commando:7/1mdnTWd9fHtj:a
+
+
+Bring Me Home
+
+https://odysee.com/Bring.Me.Home.2019.1080p.BluRay.x264.AAC5.1:8
+
+
+Fantastic Beasts And Where To Find Them
+
+https://odysee.com/Fantastic.Beasts.And.Where.To.Find.Them.2016.1080p.BluRay.x264:3
+
+
+Mad Max: Fury Road
+
+https://odysee.com/@TheANTIVIRUS:9/Animotica_28_2_1_0_1:1
+
+
+The Batman
+
+https://odysee.com/@Montajes:0/The-Batman-(2022)--BluRay-Rip--AC3-5.1-Castellano-:2
+
+
+Tonikawa
+
+https://odysee.com/@Hans_Rokudou:1/-AnimeOnlineNinja--Tonikaku-Kawaii-BD-Latino-03:4
+
  https://odysee.com/WATCHMEN:e8   
   
 Fantastic Beasts: The Secrets of Dumbledore
