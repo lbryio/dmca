@@ -3,8 +3,35 @@ To Whom It May Concern:
 I am contacting you on behalf of Disney Enterprises, Inc. and/or its subsidiaries and affiliated companies ("Disney"), who own or control, or are authorized to enforce by the owner of, one or more exclusive rights under copyright to the works identified, including the right to distribute such works. This access was present on 2022-03-30. Please act expeditiously to remove or disable access to the infringing material as listed below.
 
 Copyrighted work(s) infringed upon:
+
+
+https://odysee.com/Aladdin-(2019)-Spanish-(1080p)--movies.frigiliana.one-:b
+
+https://odysee.com/@Serie-VF-Vost.fr:b/The-Mandalorian-Vol-1X03-FR:a
+
+https://odysee.com/@Sergiotpk:d/Mulan-(2020)---HD-720p-Dublado:e
+
+https://odysee.com/1992.-Sister-Act:5
+
+https://odysee.com/@Commando:7/returnofjedi:0
+
+https://odysee.com/@imperiozero:7/21X1-Los-Serfsons:9
+
+https://odysee.com/@FPP_GAMES:c/Avengers-Infinity-War-(2018):0
+
+https://odysee.com/@JustPhineasFlynn:b/phineas-and-ferb-the-movie-candace-13:2
+
 94th Academy Awards on ABC (2022)
 
+https://odysee.com/@CineSyNFilms:b/Captain.america.the.winter.soldier.2014.E.L:c
+
+https://odysee.com/@Serie-VF-Vost.fr:b/The-Mandalorian-Vol-1X02-FR:2
+
+https://odysee.com/@PelisTop:1/Mulan2020:a
+
+https://odysee.com/@MovieMania:d/Avengers-Age-of-Ultron-(2015)-720p-Blu-Ray--Dual-Audio--English-+-Hindi-BD-5.1----Zaeem:5
+
+https://odysee.com/@CineSyNFilms:b/Spies.in.disguise.2019.E.L:7
 
 https://odysee.com/@Phineas_Ferb:1/phineas-and-ferb-the-movie:9
 
