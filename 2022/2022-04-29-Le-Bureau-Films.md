@@ -27,6 +27,11 @@ https://odysee.com/@Documentaires:4/Un-pays-qui-se-tient-sage-COMPLET:5?r=6hRSXp
 https://odysee.com/@Documentaires:4/Un-pays-qui-se-tient-sage-COMPLET:5
 https://odysee.com/@flora:8/Un-pays-qui-se-tient-sage-COMPLET1:b
 
+https://odysee.com/@Politique:b2/Un.President.L.Europe.et.la.guerre.DOC.2022:0
+
+https://odysee.com/@sarah.markus:f/Un_President_l_Europe_et_la_Guerre_2022:b
+
+https://odysee.com/@MaChaineAMoi:c/Un-Pr%C3%A9sident,-l'Europe-et-la-guerre:8
 
 
 TRUSTED USER SUBMISSION
