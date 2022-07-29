@@ -3,7 +3,41 @@ To Whom It May Concern:
 I am contacting you on behalf of Disney Enterprises, Inc. and/or its subsidiaries and affiliated companies ("Disney"), who own or control, or are authorized to enforce by the owner of, one or more exclusive rights under copyright to the works identified, including the right to distribute such works. This access was present on 2022-03-30. Please act expeditiously to remove or disable access to the infringing material as listed below.
 
 Copyrighted work(s) infringed upon:
+ 
 
+https://odysee.com/@SIMPSONSClasicosEnEspañol:3/Pdef-08---02-bueno:7
+
+https://odysee.com/@xprovidencia01:d/Ver-Guardianes-de-la-Galaxia-(2014):d
+
+https://odysee.com/@DS_FatCat:8/Doctor-Strange-2016-CZ:1
+
+https://odysee.com/@JustPhineasFlynn:b/phineas-and-ferb-the-movie-candace-14:c
+
+https://odysee.com/@SciFi:c/02_La.serie.ha.aterrizado.:7
+
+https://odysee.com/@Steph:2/X-Files---Predictive-Programming-wvvwHWY23Xk-720p-1654650323704:2
+
+https://odysee.com/@OldDisneyMusic:2/beauty-and-the-beast---belle:f
+
+https://odysee.com/@MySweetVelveteen:d/-nightmare-before-christmas:8
+
+https://odysee.com/@imperiozero:7/21X2-Esplendor-de-Springfield:c
+
+https://odysee.com/@LosSimpson23:3/Lossimpson-temp30cap4:2
+
+https://odysee.com/@SeriesCastellano:e/The-Mandalorian-2x01---El-comisario:8
+
+https://odysee.com/@Felix88:7/wandavisionmagicshow:a
+
+https://odysee.com/@FEFDG:d/Aladdin-(1992):f
+
+https://odysee.com/@SeriesCastellano:e/The-Mandalorian-1x04---Santuario:3
+
+https://odysee.com/@BillyBungBu:8/WandaVision.S01E07:a
+
+https://odysee.com/@Se%C3%B1or_Thompson:7/Simpsons_Latino_S06E17_Homero_contra_Patty_y_Selma:d
+
+https://odysee.com/@ShadieVideosyPel%C3%ADculasRescatadas:6/ShadieVideosyPel%C3%ADculasRescatadas.7:1
 
 https://odysee.com/Aladdin-(2019)-Spanish-(1080p)--movies.frigiliana.one-:b
 
