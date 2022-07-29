@@ -3,7 +3,10 @@ To Whom It May Concern:
 I am contacting you on behalf of Disney Enterprises, Inc. and/or its subsidiaries and affiliated companies ("Disney"), who own or control, or are authorized to enforce by the owner of, one or more exclusive rights under copyright to the works identified, including the right to distribute such works. This access was present on 2022-03-30. Please act expeditiously to remove or disable access to the infringing material as listed below.
 
 Copyrighted work(s) infringed upon:
- 
+
+https://odysee.com/@LofiMov:7/Fantasia-2000-(1999):a
+
+https://odysee.com/@LesSimpson:e/Simpson---Saison-30-Episode-12---La-Fille-dans-le-bus:2
 
 https://odysee.com/@SIMPSONSClasicosEnEspañol:3/Pdef-08---02-bueno:7
 
