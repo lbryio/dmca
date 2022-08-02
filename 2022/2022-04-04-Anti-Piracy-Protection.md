@@ -4,6 +4,49 @@ I am contacting you on behalf of Disney Enterprises, Inc. and/or its subsidiarie
 
 Copyrighted work(s) infringed upon:
 
+
+https://odysee.com/@simpsonmania:4/Los-Simpson-1x07:b
+
+https://odysee.com/@gamesdanet:d/os-simpsons-episódio-13-completo-em:2
+
+https://odysee.com/@gamesdanet:d/os-simpsons-episódio-14-completo-em:d
+
+https://odysee.com/@jhoac:b/los-simpsons-t27-c19-completos-cañón:9
+
+https://odysee.com/@PeliculaSeries:7/ARTEMISFOWL:0
+ 
+https://odysee.com/@QAmiral:9/The.Hot.Zone.S02E02-1:c 
+
+https://odysee.com/@Movies4U:e/Finding_Nemo_(2003):d
+
+https://odysee.com/@DISNEY:ec/Les-Aristochats-1970:4 
+
+https://odysee.com/@HDmovies:5/Iron-Man-2--2010-hdmovies:a
+
+https://odysee.com/@Concept:a/2000---X-men:e
+
+https://odysee.com/@filmesBR:14/The-Mandalorian-2ª-Season-episode-03-Online-:b 
+
+https://odysee.com/@DoctorStrange:b/Doctor.Strange:1 
+
+https://odysee.com/@KIDZ.tv:e/Onward:a
+
+https://odysee.com/@X-Files_1993_Lat:c/X-Files-E39-S02E15-Fresh-Bones:2 
+
+https://odysee.com/@imperiozero:7/21x3-Padre-de-Whistler:4
+
+https://odysee.com/@VanderReis:4/AMERICA-HORROR-STORY-ANUNCIA-O-ANTI-CRISTO-E-SEUS-PLANOS.:6 
+
+https://odysee.com/@Peliculasmarvel:4/Avengers.Age.of.Ultron.2015.hd-dual-lat-r:6
+
+https://odysee.com/@LesSimpson:e/Simpson---Saison-29-Episode-4---Spéciale-Halloween-XXVIII:2
+
+https://odysee.com/@documania:1/Marvel's616.Cap.6De8:e
+
+https://odysee.com/@QAmiral:9/American.Horror.Story.S10EP02-VF-1:d 
+
+https://odysee.com/@PeliculasEnEspa%C3%B1ol:6/Doctor-Strange-En-El-Multiverso-De-La-Locura-(2022):7
+
 https://odysee.com/@LofiMov:7/Fantasia-2000-(1999):a
 
 https://odysee.com/@LesSimpson:e/Simpson---Saison-30-Episode-12---La-Fille-dans-le-bus:2
