@@ -20,7 +20,366 @@ Director WW Online Enforcement
 <personal information extraxted>
 agent@warnerbros.copyright-notice.com
  
+ 
+JoJo's Bizarre Adventure: Golden Wind
 
+https://odysee.com/@非恩傑羅:2/【中配】JOJO的奇妙冒險-黃金之風-01:1
+
+Rick and Morty
+
+https://odysee.com/@RickAndMorty_T5:3/E4_Español:e
+
+The Suicide Squad
+
+https://odysee.com/@antitout:b/44EAEBB5425F570664F53BBC7DCF56E0C36A6379ED6C33AAA33F1AFD0BB9EC03:3
+
+V for Vendetta
+
+https://odysee.com/@FilmsaVoir:2/2006-V-pour-Vendetta:e 
+ 
+JoJo's Bizarre Adventure: Golden Wind
+
+https://odysee.com/@非恩傑羅:2/【中配】JOJO的奇妙冒險-黃金之風-04:3
+
+Joker
+
+https://odysee.com/@刘晓燕保命班2021:4/《Joker.小丑》.2019.中英字幕:8
+
+V for Vendetta
+
+https://odysee.com/@BehindTheMatrix:7/V-wie-Vendetta-(2005):8  
+ 
+Animatrix
+
+https://odysee.com/@BehindTheMatrix:7/The-Animatrix-Deutsch-(2003):5
+
+
+Edge of Tomorrow
+
+https://odysee.com/@Odysee.cinema:4/Edge-Of-Tomorrow:b8
+
+
+Lethal Weapon 3
+
+https://odysee.com/@andersonferreiradasilva44:f/maquinamortifera3:a
+
+
+Swordfish
+
+https://odysee.com/@fullmovies:7/Swordfish-2001:1
+
+
+The Powerpuff Girls 1998
+
+https://odysee.com/@KuttyzChoice:f/powerpuff_girls_1998_1:a 
+ 
+Animatrix
+
+https://odysee.com/@BehindTheMatrix:7/The-Animatrix-Deutsch-(2003):5
+
+
+Edge of Tomorrow
+
+https://odysee.com/@Odysee.cinema:4/Edge-Of-Tomorrow:b8
+
+
+Lethal Weapon 3
+
+https://odysee.com/@andersonferreiradasilva44:f/maquinamortifera3:a
+
+
+Swordfish
+
+https://odysee.com/@fullmovies:7/Swordfish-2001:1
+
+
+The Powerpuff Girls 1998
+
+https://odysee.com/@KuttyzChoice:f/powerpuff_girls_1998_1:a 
+ 
+Harry Potter and the Sorcerer's Stone
+
+https://odysee.com/@Pedrincv:0/10000000_808641313438736_7450009544615927525_n-(1):5
+
+
+JoJo's Bizarre Adventure: Golden Wind
+
+https://odysee.com/@非恩傑羅:2/【中配】JOJO的奇妙冒險-黃金之風-18:c
+
+https://odysee.com/@非恩傑羅:2/【中配】JOJO的奇妙冒險-黃金之風-20:8
+
+https://odysee.com/@非恩傑羅:2/【中配】JOJO的奇妙冒險-黃金之風-16:7
+
+https://odysee.com/@非恩傑羅:2/【中配】JOJO的奇妙冒險-黃金之風-10:8
+
+https://odysee.com/@非恩傑羅:2/【中配】JOJO的奇妙冒險-黃金之風-11:9
+
+
+The Shining
+
+https://odysee.com/@XP:e7/216:8c
+
+
+Westworld
+
+https://odysee.com/@davidcripto:1/westworld:d 
+ 
+https://odysee.com/@jackcastel55:c/V-pour-vendetta:6b 
+ 
+Catwoman
+
+https://odysee.com/@lovetowatchmovies:7/Catwoman-(2004):4
+
+JoJo's Bizarre Adventure: Golden Wind
+
+https://odysee.com/@非恩傑羅:2/【中配】JOJO的奇妙冒險-黃金之風-03:9
+
+Mob Psycho 100
+
+https://odysee.com/@Derago_PC:5/Mob-Psycho-100-S2-Cap-06-Latino:b
+
+Relatos Salvajes
+
+https://odysee.com/@moviebluebook:4/蛮荒故事:8 
+ 
+PLEASE TERMINATE THE ENTIRE CHANNEL:
+ 
+https://odysee.com/@DALLAS_1978_DE:2
+ 
+The Anarchists
+
+https://odysee.com/@WisdomTheater3000:6/THE-ANARCHSTS:3
+
+PLEASE TERMINATE THE ENTIR CHANNEL:
+
+https://odysee.com/@Ntvtoons:7 
+ 
+Friends
+
+https://odysee.com/@itsbuddy:b/friends_s01e01_720p_bluray_x264-sujaidr:8
+
+Westworld
+
+https://odysee.com/@Filmsandmusic:4/Westworld-(1973):0
+
+The Matrix
+
+https://odysee.com/@Filmsandmusic:4/The-Matrix-(1999):8c
+
+Eyes Wide Shut
+
+https://odysee.com/@Filmsandmusic:4/Eyes-Wide-Shut-(1999):14
+
+The Island
+
+https://odysee.com/@Filmsandmusic:4/The-Island-(2005):d
+
+The Terminator
+
+https://odysee.com/@Filmsandmusic:4/The-Terminator-(1984):c
+
+A Clockwork Orange
+
+https://odysee.com/@Filmsandmusic:4/A-Clockwork-Orange-(1971):e
+
+PLEASE TERMINATE THE ENTIRE CHANNEL:
+
+https://odysee.com/@Filmsandmusic:4 
+ 
+Gremlins
+
+https://odysee.com/@jackcastel55:c/Gremlins-1984:2
+
+Richard Jewell
+
+https://odysee.com/@Hungered:4/Richard.Jewell-Eng:a
+
+The Replacements
+
+https://odysee.com/@METAFORAS:4/LOS_SUPLENTES:8
+ 
+Gremlins
+
+https://odysee.com/@SKmovies:a/1984---Gremlins:a
+
+Lucifer
+
+https://odysee.com/@fabriciofreire238:5/Lucifer-2ª-Temporada-11-Episódio:1
+
+The Hobbit
+
+https://odysee.com/@CartoonGoodies:d/1977---The-Hobbit:1 
+ 
+300
+
+https://odysee.com/@Mrs.media:d/300.2006:5
+ 
+Lucifer
+
+https://odysee.com/@fabriciofreire238:5/Lucifer-2ª-Temporada-12-Episódio:8
+
+https://odysee.com/@fabriciofreire238:5/Lucifer-2ª-Temporada-09-Episódio:d
+
+https://odysee.com/@fabriciofreire238:5/Lucifer-1ª-Temporada-01-Episódio:c
+
+https://odysee.com/@fabriciofreire238:5/Lucifer-2ª-Temporada-15-Episódio:7
+
+https://odysee.com/@fabriciofreire238:5/Lucifer-2ª-Temporada-10-Episódio:6 
+ 
+https://odysee.com/@januszkowalskii1979:e/Anarchists---Currency-(Anarchapulco)-pt3:8 
+ 
+Hi Score Girl
+
+https://odysee.com/@Projetospeedart:0/high-score-girl-dublado-epis-dio-1-2:b
+
+Superman: Red Son
+
+https://odysee.com/@Wibble:c/Redson:4
+
+The Searchers
+
+https://odysee.com/@ClassicMovies:f/The-Searchers-1956:e
+
+Freddy's Dead: The Final Nightmare
+
+https://odysee.com/@DoubléauQc:d/1991.-La-fin-de-Freddy---L'ultime-cauchemar:0
+
+The Hobbit: An Unexpected Journey
+
+https://odysee.com/@amitabha:5/JRR-Tolkien's-The-Hobbit-DEC-2015-FINAL:c
+
+The Pelican Brief
+
+https://odysee.com/@Cinémathèque:f/L-Affaire-Pelican.1993.VF.720p:7
+ 
+https://odysee.com/@cosmopolite:5/film-Le-Cercle-des-poètes-disparus-streaming-vf:5
+
+https://odysee.com/@QAmiral:9/The.X-Files.EP03.PLANDEMIE-1:6
+
+https://odysee.com/@GalacticGlueReviews:4/Star-Wars_-Clone-Wars-(2003)--Volume-1:8
+
+https://odysee.com/@QAmiral:9/The.X-Files.EP02.PLANDEMIE-1:6
+ 
+https://odysee.com/@3haciaelsue%C3%B1o:9?view=about 
+ 
+https://odysee.com/@fabriciofreire238:5/Lucifer-2%C2%AA-Temporada-01-Epis%C3%B3dio:0 
+ 
+Godzilla: King Of The Monsters
+
+https://odysee.com/@电影:a/King-of-the-Monsters（怪兽之王）:1
+
+Tenet
+
+https://odysee.com/@JjCcmvtv:b/Tenet-(2020)HD:1
+ 
+https://odysee.com/@elias.prodolliet:4/worthless-spurious-tarsier:d
+
+https://odysee.com/@Señor_Thompson:7/Simpsons_Latino_S04E12_Marge_contra_el_monorriel:9
+
+https://odysee.com/@PeliVideosZ:7/Temporada-1-Capitulo-4:a
+
+https://odysee.com/@Area51Infantiles:e/BUSCANDO-A-NEMO-(LATINO)(2003):e
+
+https://odysee.com/@benjones:9/ROTS_Bending:2
+ 
+https://odysee.com/@LesSimpson:e/Simpson---Saison-3-Episode-12---Vive-les-mariés--:6
+
+https://odysee.com/@GoldenNostalgia:b/Mulan.1998.1080p.BluRay.x264.AAC.5.1-POOP:1
+
+https://odysee.com/@CoolFreeMovies:c/ConAir.1997.1080p.BrRip.x264.BOKUTOX.YIFY:1
+
+https://odysee.com/@LesSimpson:e/Simpson---Saison-30-Episode-9---Daddicus-Finch:1
+
+https://odysee.com/@FPP_GAMES:c/Avengers-Endgame-(2019):2
+
+https://odysee.com/@Comedy_Movies:8/The.Simpsons.Movie.2007.1080p.BluRay.x264--YTS.AM-:b 
+ 
+Beowulf
+
+https://odysee.com/@Cinéma-Verité:e/Be:f23
+
+
+Fantastic Beasts: The Secrets of Dumbledore
+
+https://odysee.com/@Kdramas.com:8/Animales.fantásticos.Los.secretos.de.Dumbledore.2022.720p-dual-lat:6
+
+
+Freedom Fighters: The Ray
+
+https://odysee.com/@Series_Animadas_DC.Cómics:0/Freedom-Fighters---The-Ray:4
+
+
+Rurouni Kenshin: The Legend Ends
+
+https://odysee.com/@Asiadramabg:3/Rurouni-Kenshin-The-Legend-Ends-Скитникът-Кеншин-Краят-на-ле:8
+
+
+Witches
+
+https://odysee.com/@CENDASHUNABKU:2/Las-Brujas-(2020):3  
+
+A Certain Scientific Railgun
+
+https://odysee.com/@Animechannel:95/onlymyrailgunT10:4
+
+
+Deliverance
+
+https://odysee.com/@canalinesperado:0/Deliverance-1972:8
+
+
+Focus
+
+https://odysee.com/@leander4557:c/Focus.2015.720p.BluRay.x264.YIFY:e
+
+
+Hi Score Girl
+
+https://odysee.com/@Projetospeedart:0/high-score-girl-dublado-epis-dio-1-4:6
+
+https://odysee.com/@oqueebomvolta:8/Hi-Score-Girl-2-Dublado:f
+
+
+Lucifer
+
+https://odysee.com/@fabriciofreire238:5/Lucifer-2ª-Temporada-08-Episódio:4
+
+
+Police Academy
+
+https://odysee.com/@ThatsEntertainement:a/1984---Police-Academy:bf
+
+
+Police Academy 4: Citizens On Patrol
+
+https://odysee.com/@ChristopherKennethBowser:6/Police-Academy-4--Citizens-On-Patrol-(1987):f
+
+
+The Big Bang Theory
+
+https://odysee.com/@Seriespañol:4/TBBT-Vic-Descargas---s01e03:3 
+ 
+Batman Returns
+
+https://odysee.com/@DoubléauQc:d/1992.-Le-Retour-de-Batman:5
+
+
+It Chapter Two
+
+https://odysee.com/@WorldFilm:4/It-Chapter-Two:2
+
+
+The Dark Knight
+
+https://odysee.com/@刘晓燕保命班2021:4/蝙蝠侠：黑暗骑士:4
+
+
+The Hobbit: The Desolation of Smaug
+
+https://odysee.com/@anand:b/hbbt_02:f
+ 
+https://odysee.com/@DoubléauQc:d/1992.-Le-Retour-de-Batman:5 
+ 
 V for Vendetta
 
 https://odysee.com/@kinofilme:f/V-wie-Vendetta-(2006)-Stream-online-anschauen-und-downloaden:e
