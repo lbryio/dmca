@@ -4,6 +4,42 @@ I am contacting you on behalf of Disney Enterprises, Inc. and/or its subsidiarie
 
 Copyrighted work(s) infringed upon:
 
+https://odysee.com/@jackcastel55:c/Buffy.The.Vampire.Slayer.1992.:8
+
+https://odysee.com/@Filmes:d3/A-Lenda-do-Tesouro-Perdido---O-Livro-dos-Segredos-2007-(1080p):c
+
+https://odysee.com/@Area51Infantiles:e/ALICIA-EN-EL-PAIS-DE-LAS-MARAVILLAS-(LATINO)(2010):e
+
+https://odysee.com/@kidzmoviechannel:c/1995.-Toy-Story:c
+
+https://odysee.com/@disneylovers:0/All-For-One-High-School-Musical-2:d
+
+https://odysee.com/@DuleUploads:0/family.guy.s19e20.1080p.web.h264-cakes:2 
+
+https://odysee.com/@FILMSAVOIRABSOLUMENT:0/BORAT-de-Larry-Charles-avec-Sacha-Baron-Cohen:2
+
+https://odysee.com/@DuleUploads:0/family.guy.s19e20.1080p.web.h264-cakes:2
+
+https://odysee.com/@mytrustworth:d/Ms.-Marvel-Season-1-Episode-4:5 
+
+https://odysee.com/@toto:10/toy_story_3_opening_healthbars:8
+
+https://odysee.com/@LYLYLATIGRESSE:3/Llylylatigresse:b
+
+https://odysee.com/@best_of_kp:5/The_Lion_King:b
+
+https://odysee.com/@Españolsimpsoms:4/Los-Simpsons---S02E03---Especial_de_Noche_de_Brujas:a
+
+https://odysee.com/@CinémaLibre:a/Ant-Man---.mp4:2
+
+https://odysee.com/@gredson:c/STARWARSEPISÓDIOIIATAQUEDOSCLONES:8
+
+https://odysee.com/@Mixer:5/-Allmovieshub.guru--Thor-Love.and.Thunder.2022.480p.HDTS.Hindi-English.x264-:7
+
+https://odysee.com/@dercilord:5/ALIENVSPREDATOR:3
+
+https://odysee.com/@Gravy:7/Always-Sunny:5
+
 https://odysee.com/@BITCOIN:d77/The-Simpsons-on-Bitcoin-and-Cryptocurrency---Feb-23rd-2020-(2):a
 
 https://odysee.com/@greatstorage:d/Prison.Break.S01E03.480P.X264_S-Files:b
