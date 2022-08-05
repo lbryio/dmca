@@ -16,6 +16,19 @@ IP Address: 104.26.5.54
 Infringing URLs:
 https://odysee.com/@gonzalezmillan:0/KINEMASTER-PREMIUM-4.14-APK-DESBLOQUEADO:1?fbclid=IwAR3Ceekzwes53o8-eGkH9Z8xlXsEBWfdZmiBtQyjbDjrYbd9vMhvVM28m1k&sunset=lbrytv
 
+  Infringing URLs:
+  
+- https://odysee.com/@DarkiNeTv:3/al-fondo-hay-sitio-hd-cap%C3%ADtulo-27:c
+- https://odysee.com/@DarkiNeTv:3/al-fondo-hay-sitio-hd-avances-del:c  
+- https://odysee.com/@Wisin:e/Al-fondo-hay-sitio-capitulo-1003-parte-1-5:4
+- https://odysee.com/Al-fondo-hay-sitio-capitulo-1003-parte-1-5:409afd0994a916a9e80a4049e193c0c4fb8e85f5
+- https://odysee.com/@DarkiNeTv:3/al-fondo-hay-sitio-hd-cap%C3%ADtulo-25:d
+- https://odysee.com/@DarkiNeTv:3/al-fondo-hay-sitio-hd-cap%C3%ADtulo-26:c
+- https://odysee.com/@DarkiNeTv:3/al-fondo-hay-sitio-hd-novena-temporada:b
+- https://odysee.com/@TioricoVideos2.0:b/YvanaLuciana:9
+- https://odysee.com/eeg-nunbe:d50b84329ffa6c6f3f29db75b79f4664da46d4a2
+- https://odysee.com/@TioricoVideos2.0:b/eeg:c
+- https://odysee.com/EEG--Shakira-Challenge:fd0791ac5dbef8e420aa2700a6f36b4cefe56a76
 - https://odysee.com/@soloparati22:0/Doctor.Strange.in.the.Multiverse.of.Madness.2022.:d
 - https://odysee.com/@Montajes:0/Doctor-Strange-en-el-multiverso-de-la-locura-(2022)--BluRay-Rip--AC3-5.1-Castellano--www.nucleohd.com-:9
 - https://odysee.com/@PeliculasEstreno:1/Viuda-Negra-(2021)-Online-Latino-HD:f
