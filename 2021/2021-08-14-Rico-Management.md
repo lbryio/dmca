@@ -12,6 +12,29 @@ Authorization From Copyright Holder To Request Removal: Provided Upon Request
 
 I believe that the following materials are infringing:
 
+
+- https://odysee.com/@ChristopherKennethBowser%3A6/%281996%29-TOOL---Stinkfist-%28480p_H.264-AAC%29%3A2
+- https://odysee.com/@AR_MF%3A8/TOOLPARABOLA%3A3
+- https://odysee.com/@ChristopherKennethBowser%3A6/%282002%29-TOOL---Parabola-%28480p_H.264-AAC%29%3Af
+- https://odysee.com/@ChristopherKennethBowser%3A6/Tool---Schism%3A5
+- https://odysee.com/@Librosparakindle%3A1/Lateralus-full-album%3Ae
+- https://odysee.com/@Librosparakindle%3A1/Lateralus-song%3A9
+- https://odysee.com/@Librosparakindle%3A1/TOOL----PARABOLA----HD%3A6
+- https://odysee.com/@Librosparakindle%3A1/Tool----Schism----HD%3A0
+- https://odysee.com/@LyricalOdyssey%3Ab/Tool--Schism%3Aa
+- https://odysee.com/@LyricalOdyssey%3Ab/Tool-The-Grudge%3A9
+- https://odysee.com/@Malkav%3Ab/Tool---Parabola%3A6
+- https://odysee.com/@PRIVATEAlpha%3A1/tool-parabola-%28audio%29%28kinetic-typography%3A3
+- https://odysee.com/@rockmer7%3Aa/TOOL---Schism_low%3A6
+- https://odysee.com/-Tool----Schism-%3A1
+- https://odysee.com/@XpuestA%3A8/Todo-ese-dolor..-es-una-ILUSI%C3%93N---Espiritualidad%2C-viajes-astrales%2C-Chakras%2C-Gl%C3%A1ndula-pineal%2C-DMT...%3A3
+- https://odysee.com/@ChristopherKennethBowser%3A6/%281997%29-TOOL---Aenema%3A5
+- https://odysee.com/@Elfucko%3A6/Tool-46and2%3A7
+- https://odysee.com/@Elfucko%3A6/Tool-Stinkfist%3A1
+- https://odysee.com/@Ma%C3%A7%C3%A3%3A1/%C3%86nima%3A3
+- https://odysee.com/@MetalMayhem%3Ae/TOOL---Stinkfist%3Aa
+- https://odysee.com/@tacticaltony702%3A6/%C3%A6nema-tool%3A9
+- https://odysee.com/@thegrimp%3A0/TOOlFortySix2%3A3
 - https://odysee.com/%2540FMOVIES%253A6/Rubikon-2022-fmovies%253A5 [2]
 - https://odysee.com/%2540HDmovies%253A5/Rubikon-2022-hdmovies%253A7 [3]
 - https://odysee.com/%2540Movie%253A99/Rubikon-2022%253A9 [4]
