@@ -12,7 +12,12 @@ Authorization From Copyright Holder To Request Removal: Provided Upon Request
 
 I believe that the following materials are infringing:
 
-
+- https://odysee.com/@AVisionDarkly%3Ab/Toolintolerance%3Ac
+- https://odysee.com/@ChristopherKennethBowser%3A6/%281994%29-TOOL---Prison-Sex%3A9
+- https://odysee.com/@Elfucko%3A6/TOOL---Crawl-Away-%28Audio%29%3A5
+- https://odysee.com/@Elfucko%3A6/TOOL---Prison-Sex%3A3
+- https://odysee.com/@Elfucko%3A6/Tool_Sober%3A2
+- https://odysee.com/@Malkav%3Ab/Tool---Sober%3A5
 - https://odysee.com/@ChristopherKennethBowser%3A6/%281996%29-TOOL---Stinkfist-%28480p_H.264-AAC%29%3A2
 - https://odysee.com/@AR_MF%3A8/TOOLPARABOLA%3A3
 - https://odysee.com/@ChristopherKennethBowser%3A6/%282002%29-TOOL---Parabola-%28480p_H.264-AAC%29%3Af
