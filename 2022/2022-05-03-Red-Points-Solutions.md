@@ -17,7 +17,16 @@ Infringing URLs:
 https://odysee.com/@gonzalezmillan:0/KINEMASTER-PREMIUM-4.14-APK-DESBLOQUEADO:1?fbclid=IwAR3Ceekzwes53o8-eGkH9Z8xlXsEBWfdZmiBtQyjbDjrYbd9vMhvVM28m1k&sunset=lbrytv
 
   Infringing URLs:
-  
+- https://odysee.com/@DarkiNeTv:3/al-fondo-hay-sitio-hd-cap%C3%ADtulo-34:0
+- https://odysee.com/@DarkiNeTv:3/al-fondo-hay-sitio-hd-cap%C3%ADtulo-32:a
+- https://odysee.com/@DarkiNeTv:3/al-fondo-hay-sitio-hd-cap%C3%ADtulo-31:5
+- https://odysee.com/@DarkiNeTv:3/Afhs3:5
+- https://odysee.com/@DarkiNeTv:3/al-fondo-hay-sitio-hd-avances-capitulo:4
+- https://odysee.com/@DarkiNeTv:3/InShot_20220804_000255330:e
+- https://odysee.com/@DarkiNeTv:3/al-fondo-hay-sitio-hd-cap%C3%ADtulo-29:1
+- https://odysee.com/@DarkiNeTv:3/al-fondo-hay-sitio-hd-cap%C3%ADtulo-28-2:9
+- https://odysee.com/@DarkiNeTv:3/al-fondo-hay-sitio-hd-cap%C3%ADtulo-28:6
+- https://odysee.com/@DarkiNeTv:3/al-fondo-hay-sitio-hd-cap%C3%ADtulo-33:6
 - https://odysee.com/@DarkiNeTv:3/al-fondo-hay-sitio-hd-cap%C3%ADtulo-27:c
 - https://odysee.com/@DarkiNeTv:3/al-fondo-hay-sitio-hd-avances-del:c  
 - https://odysee.com/@Wisin:e/Al-fondo-hay-sitio-capitulo-1003-parte-1-5:4
