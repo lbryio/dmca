@@ -4,6 +4,18 @@ I am contacting you on behalf of Disney Enterprises, Inc. and/or its subsidiarie
 
 Copyrighted work(s) infringed upon:
 
+https://odysee.com/@cineamericano:1/Kingsman-Servicio-Secreto:4
+
+https://odysee.com/@cineamericano:1/Kingsman-Servicio-Secreto:4
+
+https://odysee.com/@ureplayanime:5/Winnie.the.Pooh.2011.Egy:0
+
+https://odysee.com/@CinémaLibre:a/Pirates-des-Carabes-Le-Secret-du-coffre-maudit-en-Streaming-Franais-Gratuit-et-Complet:6
+
+https://odysee.com/@FredAlbrecht:7/X-20Men-20Origins-20Wolverine.mp4:b
+
+https://odysee.com/@Shehan123:5/Artemis.Fowl.2020.720p.WEBRip.x264.AAC--YTS.MX-:b
+
 https://odysee.com/@TeluguMovies:c/POTC-4-telugu:b
 
 https://odysee.com/@ANIME_OTAKU:3/toy_story-1-:4
