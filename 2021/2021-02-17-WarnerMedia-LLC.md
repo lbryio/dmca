@@ -20,6 +20,165 @@ Director WW Online Enforcement
 <personal information extraxted>
 agent@warnerbros.copyright-notice.com
  
+https://odysee.com/@MAGAlionHAT:e/Bill-Maher_How-the-Left-Was-Lost:1 
+ 
+Father of the Bride
+
+https://odysee.com/@Movies:754/El-padre-de-la-novia-(2022):b
+
+Friends
+
+https://odysee.com/@Allinone:8d/FriendsSeason1Ep1TheOneWhereMonicaGetsARoommate:2
+
+Real Time with Bill Maher
+
+https://odysee.com/@enlightenedones!:1/New-Rule-The-Misinformation-Age--Real-Time-with-Bill-Maher-(HBO):3
+
+We Bare Bears
+
+https://odysee.com/@EscandalosoTv:7/escandaloso1x02p:0 
+ 
+https://odysee.com/@supermariod579:9/pretty-little-liars-original-sin-temporada-1-capitulo-1_0.v0:0  
+ 
+https://odysee.com/@Privacy:c/wqn3gR1WTcA:1
+
+https://odysee.com/@anishpoddar2307:0/lwtmonkeypox:7
+
+
+Regular Show
+
+https://odysee.com/@Adrian:5d5/Un-Show-Mas-T1-C2.1080p:2
+
+https://odysee.com/@Adrian:5d5/Un-Show-Mas-T1-C1.1080p:a
+
+
+Sopranos
+
+https://odysee.com/@Punisher555:d/The.Sopranos.S01E13.720p.BluRay.nHD.x264-NhaNc3:6
+
+https://odysee.com/@Punisher555:d/The.Sopranos.S01E12.720p.BluRay.nHD.x264-NhaNc3:7
+
+
+Superman & Lois
+
+https://odysee.com/Superman.-.Lois.1-04.HD720p-lat:b
+
+https://odysee.com/Superman.-.Lois.1-08.HD720p-lat:6
+
+https://odysee.com/Superman.-.Lois.1-05.HD720p-lat:d
+
+https://odysee.com/Superman.-.Lois.1-09.HD720p-lat:c
+
+https://odysee.com/Superman.-.Lois.1-10.HD720p-lat:e
+
+https://odysee.com/Superman.-.Lois.1-06.HD720p-lat:8
+
+https://odysee.com/Superman.-.Lois.1-07.HD720p-lat:c
+
+https://odysee.com/Superman.-.Lois.1-12.HD720p-lat:0
+
+https://odysee.com/Superman.-.Lois.1-11.HD720p-lat:5
+
+https://odysee.com/Superman.-.Lois.1-13.HD720p-lat:d
+
+https://odysee.com/Superman.-.Lois.1-14.HD720p-lat:6
+
+https://odysee.com/Superman.-.Lois.1-15HD720P-lat:b
+
+https://odysee.com/Superman.-.Lois.1-01.HD720p-lat:d
+
+https://odysee.com/Superman.-.Lois.1-03.HD720p-lat:9
+
+https://odysee.com/Superman.-.Lois.1-02.HD720p-lat:f
+
+
+The 100
+
+https://odysee.com/@Los-100-Temp7:6/losIOO.7x04.Esp-HD:8
+
+https://odysee.com/@Los-100-Temp7:6/losIOO.7x05.Esp-HD:6
+
+
+The Batman
+
+https://odysee.com/@MetaMovies:9/The.Batman.2022.1080p.WEBRip.1600MB.DD2.0.x264-GalaxyRG:e
+
+https://odysee.com/@Punisher555:d/Batman2022:4
+
+
+The Matrix
+
+https://odysee.com/@Punisher555:d/The.Matrix.1999commando:f
+
+
+The Pelican Brief
+
+https://odysee.com/@audiolibros:a/informepelicano-JohnGrisham:2
+
+
+The Sandman
+
+https://odysee.com/@nxobzera:9/Sandman-EP-03:4
+
+https://odysee.com/@nxobzera:9/Sandman-EP-04:e
+
+
+The Time Traveler's Wife
+
+https://odysee.com/@STRiCK3R:4/The.Time.Travelers.Wife.S01E01.FRENCH.WEB.720p.H264-MesVOD:5
+
+
+Two and a Half Men
+
+https://odysee.com/@Jz:2/JZ-:e
+
+
+We Bare Bears
+
+https://odysee.com/@ososescandalososwebarebearslatino:0/capitulo-temporada-:c
+
+https://odysee.com/@ososescandalososwebarebearslatino:0/escandalosos-capitulo-temporada:0
+
+https://odysee.com/@ososescandalososwebarebearslatino:0/capitulo-1-temporada-1:5
+
+https://odysee.com/@EscandalosoTv:7/escandalosos1x04:b
+
+https://odysee.com/@ososescandalososwebarebearslatino:0/video-viral-:4
+
+https://odysee.com/@EscandalosoTv:7/escandalosos-1x03:2
+
+https://odysee.com/@DETODO:a/1x1-Charlie-y-la-serpiente:3
+
+https://odysee.com/@EscandalosoTv:7/9a7cd0ac933f9a03782810f7ca049a55-1080p:e
+
+https://odysee.com/@ItalianStream:4/We-Bare-Bears-S01E06-ITA:9
+
+https://odysee.com/@DETODO:a/1x2-Video-viral:8
+
+https://odysee.com/@ItalianStream:4/We-Bare-Bears-S01E08:2
+
+https://odysee.com/@ItalianStream:4/We-Bare-Bears-S01E01-02:d
+
+
+Zack Snyder's Justice League
+
+https://odysee.com/@Kendy:3/Liga-Spravedlnosti-Zacka-Snydera-cz-2021):5  
+ 
+https://odysee.com/@LeosLateNightRips:c/The.Righteous.Gemstones.S02E02.720p.HMAX.WEB_DL.DD5.1.H.264_NTb_.ee:e
+
+https://odysee.com/@LeosLateNightRips:c/The.Righteous.Gemstones.S02E03.720p.WEB.H264_CAKES.ee:1
+
+https://odysee.com/@LeosLateNightRips:c/the.righteous.gemstones.s02e05.720p.web.h264_cakes.ee.mp4:2
+
+https://odysee.com/@LeosLateNightRips:c/the.righteous.gemstones.s02e04.720p.web.h264-cakes:2
+
+https://odysee.com/@LeosLateNightRips:c/The.Righteous.Gemstones.S02E07.720p.WEB.H264_CAKES.ee:7
+
+https://odysee.com/@LeosLateNightRips:c/the.righteous.gemstones.s02e09.720p.web.h264-cakes:0
+
+https://odysee.com/@LeosLateNightRips:c/the.righteous.gemstones.s02e06.720p.web.h264-cakes.ee.mp4-at-Streamtape.com:7
+
+https://odysee.com/@LeosLateNightRips:c/437aa244e339a5860f92291eb09c38355:a 
  
 Chernobyl
 
