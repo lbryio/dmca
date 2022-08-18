@@ -4,6 +4,43 @@ I am contacting you on behalf of Disney Enterprises, Inc. and/or its subsidiarie
 
 Copyrighted work(s) infringed upon:
 
+https://odysee.com/@SoloParaTi:8/Quien-Engaño-a-Roger-Rabitt-HD:3
+
+Oslo
+
+https://odysee.com/@Hungered:4/Oslo-Eng:2
+
+
+Raised By Wolves
+
+https://odysee.com/@ZephyrAuidobook:4/Raised-by-Wolves-S01E08---1080p-HMAX-WEB-DL-x265-HEVC-10bit-DD5.1-ESub-Vyndros:4
+
+https://odysee.com/@ZephyrAuidobook:4/Raised-by-Wolves-S01E03---1080p-HMAX-WEB-DL-x265-HEVC-10bit-DD5.1-ESub-Vyndros:9
+
+https://odysee.com/@ZephyrAuidobook:4/Raised-by-Wolves-S01E09---1080p-HMAX-WEB-DL-x265-HEVC-10bit-DD5.1-ESub-Vyndros:2
+
+https://odysee.com/@ZephyrAuidobook:4/Raised-by-Wolves-S01E04---1080p-HMAX-WEB-DL-x265-HEVC-10bit-DD5.1-ESub-Vyndros:d
+
+https://odysee.com/@ZephyrAuidobook:4/Raised-by-Wolves-S01E07---1080p-HMAX-WEB-DL-x265-HEVC-10bit-DD5.1-ESub-Vyndros:f
+
+https://odysee.com/@ZephyrAuidobook:4/Raised-by-Wolves-S01E05---1080p-HMAX-WEB-DL-x265-HEVC-10bit-DD5.1-ESub-Vyndros:9
+
+https://odysee.com/@ZephyrAuidobook:4/Raised-by-Wolves-S01E10---1080p-HMAX-WEB-DL-x265-HEVC-10bit-DD5.1-ESub-Vyndros:b
+
+Real Time with Bill Maher
+
+https://odysee.com/@somechannel:a2/bill-maher-trans:6
+
+https://odysee.com/@BoogieFinger:4/New-Rule-Along-for-the-Pride-Real-Time-with-Bill-Maher--HBO-:0
+
+https://odysee.com/@notestomyself:6/New-Rule---Along-for-the-Pride-_-Real-Time-with-Bill-Maher-(HBO):0
+
+The Matrix Resurrections
+
+https://odysee.com/@RoGuE-MoViEs:a/The-Matrix-Resurrections:4
+
+https://odysee.com/@FilmyPL:8/CRUELLA2021PlDub:4
+
 https://odysee.com/@cineamericano:1/Kingsman-Servicio-Secreto:4
 
 https://odysee.com/@cineamericano:1/Kingsman-Servicio-Secreto:4
