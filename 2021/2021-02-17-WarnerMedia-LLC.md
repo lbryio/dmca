@@ -20,6 +20,216 @@ Director WW Online Enforcement
 <personal information extraxted>
 agent@warnerbros.copyright-notice.com
  
+https://odysee.com/@Wibble:c/Private-Benjamin-1980:9 
+ 
+Batman 1966
+
+https://odysee.com/Batman-(1966)-S01E33-Fine-Finny-Fiends:a
+
+https://odysee.com/Batman-(1966)-S01E14-Batman-Stands-Pat:2
+
+https://odysee.com/Batman-(1966)-S01E09-Zelda-The-Great:9
+
+Doom Patrol
+
+https://odysee.com/@chalvarezp:b/-Doom-Patrol-1x15-Español-HD:4
+
+Game of Thrones
+
+https://odysee.com/Juego-de-Tronos-T8-Capi-6:9
+
+https://odysee.com/Juego-de-Tronos-T8-Capi-5:c
+
+https://odysee.com/Juego-de-Tronos-T8-Capi-4:4
+
+https://odysee.com/Juego-de-Tronos-T8-Capi-3:6
+
+https://odysee.com/Juego-de-Tronos-T8-Capi-2:3
+
+https://odysee.com/Juego-de-Tronos-T8-Capi-1:1
+
+https://odysee.com/Juego-de-Tronos-T7-Capi-7:6
+
+https://odysee.com/Juego-de-Tronos-T7-Capi-5:4
+
+https://odysee.com/Juego-de-Tronos-T7-Capi-6:d
+
+https://odysee.com/Juego-de-Tronos-T7-Capi-4:3
+
+https://odysee.com/Juego-de-Tronos-T7-Capi-3:d
+
+https://odysee.com/Juego-de-Tronos-T7-Capi-1:0
+
+https://odysee.com/Juego-de-Tronos-T7-Capi-2:0
+ 
+Lucifer
+
+https://odysee.com/@TodoSeries:f/lucifer-3x04-castellano:1 
+
+Blade Runner 2049
+
+https://odysee.com/Blade.runner.2049.2017.1080p-dual-lat:2
+
+Chernobyl
+
+https://odysee.com/@Cloacaspoliticas:1/CHERNOBYL-1X5:1
+
+https://odysee.com/@Cloacaspoliticas:1/CHERNOBYL-1X3:8
+
+https://odysee.com/@Cloacaspoliticas:1/CHERNOBYL-1X4:e
+
+https://odysee.com/@L.Y.S.LibertadYSoberania:7/CHERNOBYL-1X1:2
+
+https://odysee.com/@L.Y.S.LibertadYSoberania:7/CHERNOBYL-1X2:7
+
+Elvis 2022
+
+https://odysee.com/@mymovies:7/Elvis(2022):9
+
+Godzilla vs. Kong
+
+https://odysee.com/@MoviesAndSeries:b8/godzilla-vs-kong-pelicula:5
+
+https://odysee.com/@LordChupetin:a/Godzilla-vs-Kong-1080p:f
+
+https://odysee.com/@stpierrs:f/godzilla.vs..kong.2021.1080p.webrip.x264.aac5.1-_yts.mx___60665779316ea:9
+
+https://odysee.com/@cineclolis:f/kong-vs-godzilla:b
+
+House of the Dragon
+
+https://odysee.com/@tog:5/StreamZZ.to-House-of-the-Dragon-S01E01-WEB-x264-RBB:3
+
+https://odysee.com/@Films-Fran%C3%A7ais:b/House-of-the-Dragon:7
+
+https://odysee.com/House.of.the.Dragon.S01E01:1
+
+https://odysee.com/House.of.the.Dragon.S01E01.FRENCH.WEB.1080p.x264.AAC.5.1-ODD:d
+
+https://odysee.com/@audiolibros:a/fuegoysangre1:3
+
+https://odysee.com/@WWE:3b/House-of-the-Dragon-(2022)-EP1:e
+
+Mortal Kombat
+
+https://odysee.com/@MoviesAndSeries:b8/mortal-kombat:c5
+
+Superman & Lois
+
+https://odysee.com/Superman-y-Lois-2x1---Un-forastero-en-tierra-extra%C3%B1a---29-12-2021:c
+
+The Anarchists
+
+https://odysee.com/@anarchy_vault:3/the-anarchists-s01e06:3
+
+https://odysee.com/@anarchy_vault:3/the-anarchists-s01e05:d
+
+https://odysee.com/@anarchy_vault:3/the-anarchists-s01e04:f
+
+https://odysee.com/@anarchy_vault:3/the-anarchists-s01e03:c
+
+https://odysee.com/@anarchy_vault:3/the-anarchists-s01e02:c
+
+https://odysee.com/@anarchy_vault:3/the-anarchists-s01e01:3
+
+
+The Matrix Resurrections
+
+https://odysee.com/Matrix-Resurrecciones-(2021)-Latino_720p:f
+
+
+The Sandman
+
+https://odysee.com/@nxobzera:9/2022-08-15-22-40-41:0
+
+https://odysee.com/@nxobzera:9/2022-08-15-23-42-09:6
+
+https://odysee.com/@nxobzera:9/2022-08-16-00-36-56:3
+
+https://odysee.com/@nxobzera:9/Sandman-EP-08:7
+
+https://odysee.com/@nxobzera:9/Sandman-EP-09:8
+
+https://odysee.com/Sandman-T1-Epi-1:a
+
+https://odysee.com/Sandman-T1-Epi-10:b
+
+https://odysee.com/@nxobzera:9/Sandman-EP-10:2
+
+https://odysee.com/Sandman-T1-Epi-7:b
+
+https://odysee.com/Sandman-T1-Epi-8:a
+
+https://odysee.com/Sandman-T1-Epi-3:4
+
+https://odysee.com/Sandman-T1-Epi-4:7
+
+https://odysee.com/Sandman-T1-Epi-5:0
+
+https://odysee.com/Sandman-T1-Epi-2:3
+
+https://odysee.com/Sandman-T1-Epi-9:2
+
+https://odysee.com/Sandman-T1-Epi-6:a
+
+https://odysee.com/The.Sandman.S01E00.720p.NF.WEB-DL.DDP5.1.Atmos.H.264.HUN.ENG-PTHD:5
+
+Zack Snyder's Justice League
+
+https://odysee.com/@MoviesAndSeries:b8/liga-de-la-justicia:d9 
+ 
+ https://odysee.com/@Alteau_Alternatives:3/Les-Évadés-1994-Film-VF:3  
+ 
+ https://odysee.com/@Montajes:0/Blade-Runner---1982--Final-Cut--BDR:4  
+ 
+ Book of Eli
+
+https://odysee.com/@luisnuz:e/boeli:e
+
+
+Elvis 2022
+
+https://odysee.com/@Andrzejmrowczynski420:1/Elvis.2022.720p.WEBRip.900MB.x264-GalaxyRG:b
+
+https://odysee.com/@FilmeUpload:5/Elvis:f
+
+https://odysee.com/@%E6%98%A0%E7%94%BB%E6%97%A5%E6%9C%AC%E8%AA%9E:1/elvisjap:7
+
+
+Game of Thrones
+
+https://odysee.com/@BoobScofield:d/Got:5
+
+https://odysee.com/@BoobScofield:d/gameofthrones:7
+
+Lucifer
+
+https://odysee.com/@TodoSeries:f/lucifer-3x03-castellano:9
+
+https://odysee.com/@TodoSeries:f/lucifer-3x05-castellano:0
+
+https://odysee.com/@TodoSeries:f/Lucifer-3x01-Esp:2
+
+https://odysee.com/@TodoSeries:f/lucifer-3x02-castellano:3
+
+Silicon Valley
+
+https://odysee.com/@PepechatTV:4/Silicon.Valley.S01e07.720P.Bluray.X265.Shaanig-1:2
+
+https://odysee.com/@PepechatTV:4/Silicon.Valley.S01e04.720P.Bluray.X265.Shaanig-1:8
+
+https://odysee.com/@PepechatTV:4/Silicon.Valley.S01e05.720P.Bluray.X265.Shaanig-1:8
+
+https://odysee.com/@PepechatTV:4/Silicon.Valley.S01e06.720P.Bluray.X265.Shaanig-1:4
+
+https://odysee.com/@PepechatTV:4/Silicon.Valley.S01e08.720P.Bluray.X265.Shaanig-1:d
+
+https://odysee.com/@PepechatTV:4/Silicon.Valley.S01e03.720P.Bluray.X265.Shaanig-1:0
+
+https://odysee.com/@PepechatTV:4/Silicon.Valley.S01e02.720P.Bluray.X265.Shaanig-1:3
+
+https://odysee.com/@PepechatTV:4/Silicon.Valley.S01e01.720P.Bluray.X265.Shaanig-1:f
+ 
 Father of the Bride
 https://odysee.com/Father-Of-The-Bride-(2022)-(Subtitulada-al-Espa%C3%B1ol):1
 
