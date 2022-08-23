@@ -44,6 +44,29 @@ Hereunder is provided the list of URLs giving access to the copyrighted
 work.
 Each of these URLs loads a web page that allows to launch the download of
 the copyrighted work.
+- https://odysee.com/72753753788337883788235:0
+- https://odysee.com/@STRiCK3R:4/Jungle.Cruise.2021.FRENCH.WEB.720p.H264.AAC-MesVOD:6
+- https://odysee.com/@xprovidencia01:d/Ver-Aguas-profundas-(2022)-Online-Latino-en-HD-:5
+- https://odysee.com/8412527416527416:2
+- https://odysee.com/75275378272:a
+- https://odysee.com/51651651651651:3
+- https://odysee.com/73453254345:4
+- https://odysee.com/541649784981841:0
+- https://odysee.com/145161654197165:e
+- https://odysee.com/65148341651341351:4
+- https://odysee.com/7878278272878:4
+- https://odysee.com/189161616416416:1
+- https://odysee.com/75324543453:3
+- https://odysee.com/2516516526519:1
+- https://odysee.com/592919259419:8
+- https://odysee.com/14614616741265:7
+- https://odysee.com/9516518r160614514:4
+- https://odysee.com/51619716513154:5
+- https://odysee.com/916516519871651:c
+- https://odysee.com/1616416121316:2
+- https://odysee.com/81641616541641445:f
+- https://odysee.com/14651152412251:e
+- https://odysee.com/894651546641:6
 - https://odysee.com/@QAmiral:9/Un.President.L.Europe.Et.La.Guerre.2022-1:4
 - https://odysee.com/@jojodu54:c/NOSSO-LAR:e
 - https://odysee.com/21a:3
