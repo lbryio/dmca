@@ -21,6 +21,14 @@ Director WW Online Enforcement
 agent@warnerbros.copyright-notice.com
  
 DC League of Super Pets 2022
+ 
+Batman Vs Robin
+
+https://odysee.com/@fsanabria_v:f/2015.04.03---Batman-vs-Robin:f
+
+Mad Max: Fury Road
+
+https://odysee.com/@filmes10:2/Mad-Max---Estrada-da-Fúria:7 
 
 https://odysee.com/DC.League.of.Super-Pets:c
 
