@@ -20,6 +20,100 @@ Director WW Online Enforcement
 <personal information extraxted>
 agent@warnerbros.copyright-notice.com
  
+DC League of Super Pets 2022
+
+https://odysee.com/DC.League.of.Super-Pets:c
+
+https://odysee.com/Krypto.et.les.Super-Animaux.2022.FRENCH.WEBRip.1080p.x264.AAC.5.1-DiD0U:d
+
+House of the Dragon
+
+https://odysee.com/@Curiosoyt:f/La-Casa-del-Drag%C3%B3n-1080p-S01E01:3
+
+https://odysee.com/@Curiosoyt:f/La-Casa-del-Drag%C3%B3n-1080p-S01E01:3
+
+https://odysee.com/@SeriesTVHD:e/-SHANA-Casa-del-dragon-cap-1:e
+
+https://odysee.com/hotd-s01-e01:4
+
+https://odysee.com/La-casa-del-Dragon-T1-Capp-1:3
+
+Rick and Morty
+
+https://odysee.com/@Kipoo:8/Rick-et-Morty-QC-02:9
+
+https://odysee.com/wA9DaAgseglpL1gjrqwG:d
+
+https://odysee.com/@Kipoo:8/Rick-et-Morty-QC-03:4
+
+https://odysee.com/@Canalrickandmorty:e/Rick-and-morty:48
+
+https://odysee.com/@Kipoo:8/Rick-et-Morty-QC-01:6
+
+https://odysee.com/@Kipoo:8/Rick-Et-Morty-QC-04:4 
+ 
+https://odysee.com/@Film:22/They.Shall.Not.Grow.Old.720p.x264:e  
+ 
+https://odysee.com/@blackstarnet:7/Creed.2015.1080p.BluRay.x264-SPARKS.mp4:7  
+ 
+Mob Psycho 100
+
+https://odysee.com/@Derago_Anime:9/Mob-Psycho-100-S2-Cap-13-Latino:5
+
+The Butterfly Effect
+
+https://odysee.com/@jackcastel55:c/L'-effet-papillon-1-2003:9 
+ 
+Cloud Atlas
+
+https://odysee.com/@MalgorAkthae:e/Cloud.Atlas.2012.lati:a
+
+Elvis 2022
+
+https://odysee.com/@DigitalDeath:d/ELVIS---2022:d
+
+House of the Dragon
+ 
+https://odysee.com/House.of.the.Dragon.S01E01:1
+
+https://odysee.com/House.of.the.Dragon.S01E01.FRENCH.WEB.1080p.x264.AAC.5.1-ODD:d
+
+https://odysee.com/@WWE:3b/House-of-the-Dragon-(2022)-EP1:e
+
+https://odysee.com/@audiolibros:a/fuegoysangre1:3
+
+https://odysee.com/@luisnuz:e/La-casa-del-Dragon:b
+
+https://odysee.com/@DigitalDeath:d/Soap2day-_-Watch-House-of-the-Dragon-2022-Online-Free-on-soap2day.md:1
+
+https://odysee.com/@alessandrodias_%E2%9C%9D%EF%B8%8F%E2%9C%9D%EF%B8%8F%E2%9C%9D%EF%B8%8F:3/Os-Herdeiros-do-Drag%C3%A3o-ep.1:f
+
+https://odysee.com/@HouseoftheDragon:0/House.of.the.Dragon.S01E01.720p.MP4.LEG.BaixarSeriesMP4.Top-V2:c
+
+
+Jorel's Brother
+
+https://odysee.com/@Raquelnascimento:b/irmao-do-jorel-ep-4-nao-tenha-medo-do:1
+
+https://odysee.com/@Raquelnascimento:b/irmao-do-jorel-clube-de-luta-livre:c
+
+https://odysee.com/@Raquelnascimento:b/irmao-do-joel-02-gangorras-da-revolu-o:b
+
+
+The Anarchists
+
+https://odysee.com/@anarchy_vault:3/the-anarchists-s01e01:3
+
+https://odysee.com/@anarchy_vault:3/the-anarchists-s01e02:c
+
+https://odysee.com/@anarchy_vault:3/the-anarchists-s01e03:c
+
+https://odysee.com/@anarchy_vault:3/the-anarchists-s01e04:f
+
+https://odysee.com/@anarchy_vault:3/the-anarchists-s01e05:d
+
+https://odysee.com/@anarchy_vault:3/the-anarchists-s01e06:3 
+ 
 https://odysee.com/@Wibble:c/Private-Benjamin-1980:9 
  
 Batman 1966
