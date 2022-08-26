@@ -2,6 +2,8 @@ To Whom It May Concern,
 
 I am reaching out on behalf of my company, the copyright owner, to ask that you take down the following videos immediately.
 
+https://odysee.com/@IntotheLight:d1/202205-07-0:4
+
 https://odysee.com/@bonniesmit:0/352-PROPAGANDA-EXPOSED---Episode-8---DEFEATING-DECEIT---TRIUMPHING-OVER-TYRANNY---9th-MAY-2022:e
 
 https://odysee.com/@bonniesmit:0/PROPAGANDA-EXPOSED---Episode-7---MODERN-DAY-ROBBER-BARONS---10th-MAY-2022:a
