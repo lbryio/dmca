@@ -14,6 +14,8 @@ https://tubitv.com/movies/566779/drugs-as-weapons-against-us
 
 The unauthorized and infringing copy can be found at, for Shots:
 
+https://odysee.com/@I-Rabbi-T:3/Shots--Eugenics-to-Pandemics-(2022)-Documentary:e
+
 https://odysee.com/@QuantumRhino:9/Shots--Eugenics-to-Pandemics-(2022):d
 
 https://odysee.com/@Steven:d/Shots-Eugenics-to-Pandemics-2022:f
