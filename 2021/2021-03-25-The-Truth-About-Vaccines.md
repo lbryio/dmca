@@ -1,5 +1,43 @@
 To Whom It May Concern, I am reaching out on behalf of my company, the copyright owner, to ask that you take down this content immediately: \
 https://odysee.com/@OfficialVaxFactsLack:a/TTAV-2020-Bonus-Transcripts---Expert-Interviews:5 Title of the infringing video: TTAV 2020 Bonus Transcripts - Expert InterviewsThese additional videos/pdfs must also go down immediately: 
+
+WakeUpMirror
+https://secure.thetruthaboutcancer.com/propaganda-exposed/
+
+AdroitTeam
+https://odysee.com/@AdroitTeam:5/PropagandaExposed8:b
+
+AdroitTeam
+https://odysee.com/@AdroitTeam:5/PropagandaExposed6:4
+
+AdroitTeam
+https://odysee.com/@AdroitTeam:5/PropagandaExposed5:e
+
+AdroitTeam
+https://odysee.com/@AdroitTeam:5/PropagandaExposed4:c
+
+AdroitTeam
+https://odysee.com/@AdroitTeam:5/PropagandaExposed02:8
+
+AdroitTeam
+https://odysee.com/@AdroitTeam:5/PropagandaExposed01:2
+
+Red Pill News
+https://odysee.com/@RedPill78:e/propaganda_exposed_rp78live:e
+
+Truth Seeker
+https://odysee.com/@TruthSeeker:31/PE-Episode-4_version_4_720.mp4:0
+
+Liberty-Whetstone
+https://odysee.com/@Liberty-Whetstone:4/TRAILER-for-Propaganda-Exposed-docu-series-coming-May-4th:4
+
+EndYourSlavery
+https://odysee.com/@EndYourSlavery:8/Propaganda-EXPOSED!-%E2%80%93-The-Truth-About-Health-Freedom---Big-Pharma---Trailer:b
+
+The Truth in this World
+https://odysee.com/@NothingNewUnderTheSun:2/Episode-2---Some-Wars-Aren't-Meant-To-Be-Won:3
+
+
 - https://odysee.com/@OfficialVaxFactsLack:a/The-Truth-About-Vaccines-Docu-series---Episode-1---Robert-F.-Kennedy-Jr-Interview:3
 - https://odysee.com/@OfficialVaxFactsLack:a/The-Truth-About-Vaccines-Docu-series---Episode-2---What%E2%80%99s-in-a-Vaccines-Are-Vac:5
 - https://odysee.com/@OfficialVaxFactsLack:a/The-Truth-About-Vaccines-Docu-Series---Episode-3---In-Depth-analysis-of-the-MMR---DTaP%2C-Vaccinating-for-the-greater-good:1
