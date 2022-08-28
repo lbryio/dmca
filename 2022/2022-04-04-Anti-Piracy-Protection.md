@@ -4,6 +4,12 @@ I am contacting you on behalf of Disney Enterprises, Inc. and/or its subsidiarie
 
 Copyrighted work(s) infringed upon:
 
+https://odysee.com/@Animatheque:7/The.Fox.And.The.Hound.1981:a
+
+https://odysee.com/@animazione:c/StreamZZ.to-A-Christmas-Carol:6
+
+https://odysee.com/@ureplayanime:5/Tinker.Bell.and.the.Legend.of.the.Neverbeast.2014:0
+
 https://odysee.com/@andyLiamano:0/Ratatouille:55
 
 https://odysee.com/@ThatsEntertainement:a/1953---Peter-Pan:9
