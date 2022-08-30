@@ -17,6 +17,26 @@ Infringing URLs:
 https://odysee.com/@gonzalezmillan:0/KINEMASTER-PREMIUM-4.14-APK-DESBLOQUEADO:1?fbclid=IwAR3Ceekzwes53o8-eGkH9Z8xlXsEBWfdZmiBtQyjbDjrYbd9vMhvVM28m1k&sunset=lbrytv
 
   Infringing URLs:
+- https://odysee.com/Lightyear-(2az):6
+-  https://odysee.com/@Andrzejmrowczynski420:1/Thor-_-Love-and-Thunder-(2022)-1080p-x264-AAC:5
+- https://odysee.com/@Peliculasymas:8/Lightyear-2022%E3%80%90Espa%C3%B1ol-Latino%E3%80%91:c
+- https://odysee.com/Eternals-(2021)-Espa%C3%B1ol-Latino-720p:9
+- https://odysee.com/@1a:4/DoctorStrangeintheMultiverseofMadness:3
+- https://odysee.com/@salvador.gallegos:3/Do.Stra.in.t3e.Mut1v3_hls-1257:2
+- https://odysee.com/@PlanetaWarez:2/Doctor-Strange-en-el-multiverso-de-la-locura-(2022)-IMAX-LIGERO-WEB-DL-1080p-Latino:e
+- https://odysee.com/Doctor-Strange-en-el-multiverso-de-la-locura-2022-hd-latino:2
+- https://odysee.com/@xprovidencia01:d/%E2%96%B7-Ver-Doctor-Strange-en-el-Multiverso-de-la-Locura-(2021):5
+- https://odysee.com/@ricardoflor_33:4/Videos:0b
+- https://odysee.com/Encanto-(2021).1080p.dual-lat.cinecalidad.lol:9
+- https://odysee.com/Encanto-720p:8
+- https://odysee.com/@Jacib:4/Encanto.2021-fetload:b
+- https://odysee.com/@RWLNews:6/Eternals2021:4
+- https://odysee.com/Free.Guy.2021.1080p.BluRay.H264.AAC-RARBG:2
+- https://odysee.com/Eternals-(2021)-Espa%C3%B1ol-Latino-720p:9
+- https://odysee.com/@RWLNews:6/Eternals2021:4
+- https://odysee.com/Free.Guy.2021.1080p.BluRay.H264.AAC-RARBG:2
+- https://odysee.com/Free-Guy-Tomando-el-control-(2021)-hd-latino:c
+- https://odysee.com/Free-Guy-Tomando-el-control-(2021)-hd-latino:c  
 - https://odysee.com/@DarkiNeTv:3/al-fondo-hay-sitio-hd-cap%C3%ADtulo-34:0
 - https://odysee.com/@MrCoffee:f/What-is-a-woman---Full-Movie:3  
 - https://odysee.com/@DarkiNeTv:3/al-fondo-hay-sitio-hd-cap%C3%ADtulo-32:a
