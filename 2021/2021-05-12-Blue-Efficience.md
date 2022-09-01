@@ -44,6 +44,8 @@ Hereunder is provided the list of URLs giving access to the copyrighted
 work.
 Each of these URLs loads a web page that allows to launch the download of
 the copyrighted work.
+  
+- https://odysee.com/Le-Pont-Du-Nord.1981:9  
 - https://odysee.com/72753753788337883788235:0
 - https://odysee.com/@STRiCK3R:4/Jungle.Cruise.2021.FRENCH.WEB.720p.H264.AAC-MesVOD:6
 - https://odysee.com/@xprovidencia01:d/Ver-Aguas-profundas-(2022)-Online-Latino-en-HD-:5
