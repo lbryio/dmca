@@ -2,6 +2,83 @@ To Whom It May Concern,
 
 I am reaching out on behalf of my company, the copyright owner, to ask that you take down the following videos immediately.
 
+- https://odysee.com/@Evolutionary_Life_Video_Archive:3/The-Truth-About-Vaccines-Docuseries---Episode-1---360p:4
+- https://odysee.com/@CanadianPatriot7120:2/The-Truth-About-Vaccines-Docu-Series---Episode-5---HPV-and-Hepatitis-B-Vaccines:f?lid=20b664da79ff66cc4b3edf2ab2e0d4caadfc11c6
+- https://odysee.com/@HumanitysVault:a/Vaccine-Roundtable:1
+- https://odysee.com/@Jadu200:7/Judy-Mikovits---Charlene-Bollinger,-Vaccines,-Luc-Montagnier,-Fake-News-30052021:4
+- https://odysee.com/@EtherealResonance:6/The-Truth-About-Vaccines-Episode-1-(2017):5
+- https://odysee.com/@EtherealResonance:6/The-Truth-About-Vaccines-Episode-2-(2017):d
+- https://odysee.com/@EtherealResonance:6/The-Truth-About-Vaccines-Episode-3-(2017):1
+- https://odysee.com/@EtherealResonance:6/The-Truth-About-Vaccines-Episode-4-(2017):e
+- https://odysee.com/@EtherealResonance:6/The-Truth-About-Vaccines-Episode-6-(2017):b
+- https://odysee.com/@EtherealResonance:6/The-Truth-About-Vaccines-Episode-7-(2017):1
+- https://odysee.com/@EtherealResonance:6/TheTruthAboutVaccinesEpisode5(2017):4
+- https://odysee.com/@EtherealResonance:6/TheTruthAboutVaccinesEpisode8(2020):d
+- https://odysee.com/@EtherealResonance:6/TheTruthAboutVaccineEpisode9(2020):9
+- https://odysee.com/@Evolutionary_Life_Video_Archive:3/The-Truth-About-Vaccines-Docuseries---Episode-1---360p:4
+- https://odysee.com/@Evolutionary_Life_Video_Archive:3/The-Truth-About-Vaccines-Docu-series---Episode-2------What%E2%80%99s-in-a-Vaccines--Are-Vaccines-Effective:3
+- https://odysee.com/@Evolutionary_Life_Video_Archive:3/The-Truth-About-Vaccines-Docu-Series---Episode-3-----Vaccinating-For-The-Greater-Good-!:c
+- https://odysee.com/@Evolutionary_Life_Video_Archive:3/The-Truth-About-Vaccines-Docu-Series---Episode-5:0
+- https://odysee.com/@Evolutionary_Life_Video_Archive:3/The-Truth-About-Vaccines-Docu-series--Episode-6:9
+- https://odysee.com/@Evolutionary_Life_Video_Archive:3/The-Truth-About-Vaccines-Docu-series---Episode-1---Robert-F--Kennedy-Jr-Interview:8
+- https://odysee.com/@Vaccines:9/TTAV2020-Vaccine-Roundtable-Part-2:9
+- https://odysee.com/@Vaccines:9/TTAV2020-Vaccine-Roundtable-Part-1:2
+- https://odysee.com/@Vaccines:9/The-Truth-About-Vaccines-Docu-Series---Episode-2---What%E2%80%99s-in-a-Vaccines-Are-Vaccines-Effective:d
+- https://odysee.com/@Vaccines:9/The-Truth-About-Vaccines-Episode-1-Robert-F-Kennedy-Jr-Interview-Smallpox-Vaccine:d
+- https://odysee.com/@CanadianPatriot7120:2/The-Truth-About-Vaccines-Docu-Series-Episode-9---W.H.O.'s-not-telling-the-truth:6?lid=20b664da79ff66cc4b3edf2ab2e0d4caadfc11c6
+- https://odysee.com/@CanadianPatriot7120:2/The-Truth-About-Vaccines-Docu-series-Episode-8---Censorship---Suppression:4?lid=20b664da79ff66cc4b3edf2ab2e0d4caadfc11c6
+- https://odysee.com/@CanadianPatriot7120:2/The-Truth-About-Vaccines-Docu-series-Episode-7---Natural-Immunization,-Homeoprophylaxis-and-Fundamental-freedom-of-choice:c?lid=20b664da79ff66cc4b3edf2ab2e0d4caadfc11c6
+- https://odysee.com/@CanadianPatriot7120:2/The-Truth-About-Vaccines-Docu-series-Episode-6---A-closer-look-at-the-CDC,-Chicken-Pox,-Rotavirus,-Vaccines---Retroviruses:5?lid=20b664da79ff66cc4b3edf2ab2e0d4caadfc11c6
+- https://odysee.com/@CanadianPatriot7120:2/The-Truth-About-Vaccines-Docu-Series---Episode-5---HPV-and-Hepatitis-B-Vaccines:f?lid=20b664da79ff66cc4b3edf2ab2e0d4caadfc11c6
+- https://odysee.com/@CanadianPatriot7120:2/The-Truth-About-Vaccines-Docu-Series---Episode-4---HIB-and-Pneumococcal-Vaccines-and-Herd-Immunity:5?lid=20b664da79ff66cc4b3edf2ab2e0d4caadfc11c6
+- https://odysee.com/@CanadianPatriot7120:2/The-Truth-About-Vaccines-Docu-Series---Episode-3---Vaccinating-For-The-Greater-Good!:8?lid=20b664da79ff66cc4b3edf2ab2e0d4caadfc11c6
+- https://odysee.com/@CanadianPatriot7120:2/The-Truth-About-Vaccines-Docu-series---Episode-2---What%E2%80%99s-in-a-Vaccines-Are-Vaccines-Effective:4?lid=20b664da79ff66cc4b3edf2ab2e0d4caadfc11c6
+- https://odysee.com/@CanadianPatriot7120:2/The-Truth-About-Vaccines-Docu-series---Episode-1--Robert-F.-Kennedy-Jr-Interview---Smallpox-Vaccine:a
+- https://odysee.com/@QuantumRhino:9/The-Truth-About-Vaccines-Docu-series---Episode-4:f?lid=febf9e9b39f9022dd019c9a60fc992fa33a4ce0c
+- https://odysee.com/@QuantumRhino:9/The-Truth-About-Vaccines-Docu-series---Episode-2:f
+- https://odysee.com/@QuantumRhino:9/The-Truth-About-Vaccines-Docu-series---Episode-10:7?lid=64ce796693265f7001c82cd9f1c41a53733c8907
+- https://odysee.com/@QuantumRhino:9/The-Truth-About-Vaccines-Docu-series---Episode-9:5?lid=64ce796693265f7001c82cd9f1c41a53733c8907
+- https://odysee.com/@QuantumRhino:9/The-Truth-About-Vaccines-Docu-series---Episode-8:6?lid=64ce796693265f7001c82cd9f1c41a53733c8907
+- https://odysee.com/@QuantumRhino:9/The-Truth-About-Vaccines-Docu-series---Episode-7:4?lid=64ce796693265f7001c82cd9f1c41a53733c8907
+- https://odysee.com/@QuantumRhino:9/The-Truth-About-Vaccines-Docu-series---Episode-6:4?lid=64ce796693265f7001c82cd9f1c41a53733c8907
+- https://odysee.com/@QuantumRhino:9/The-Truth-About-Vaccines-Docu-series---Episode-5:6?lid=64ce796693265f7001c82cd9f1c41a53733c8907
+- https://odysee.com/@QuantumRhino:9/The-Truth-About-Vaccines-Docu-series---Episode-3:1?lid=64ce796693265f7001c82cd9f1c41a53733c8907
+- https://odysee.com/@QuantumRhino:9/The-Truth-About-Vaccines-Docu-series---Episode-1:c?lid=64ce796693265f7001c82cd9f1c41a53733c8907
+- https://odysee.com/@VaccineDocumentaries:6/TTAV4:3
+- https://odysee.com/@VaccineDocumentaries:6/TTAV3:2
+- https://odysee.com/@VaccineDocumentaries:6/TTAV5:b
+- https://odysee.com/@VaccineDocumentaries:6/TTAV1:f
+- https://odysee.com/@VaccineDocumentaries:6/are-vaccines-dangerous:6
+- https://odysee.com/@VaccineDocumentaries:6/vaccine-truth:2
+- https://odysee.com/@QuantumRhino:9/The-Truth-About-Vaccines-Docu-series---Episode-9:5?lid=febf9e9b39f9022dd019c9a60fc992fa33a4ce0c
+- https://odysee.com/@QuantumRhino:9/The-Truth-About-Vaccines-Docu-series---Episode-7:4?lid=febf9e9b39f9022dd019c9a60fc992fa33a4ce0c
+- https://odysee.com/@QuantumRhino:9/The-Truth-About-Vaccines-Docu-series---Episode-6:4?lid=febf9e9b39f9022dd019c9a60fc992fa33a4ce0c
+- https://odysee.com/@QuantumRhino:9/The-Truth-About-Vaccines-Docu-series---Episode-5:6?lid=febf9e9b39f9022dd019c9a60fc992fa33a4ce0c
+- https://odysee.com/@QuantumRhino:9/The-Truth-About-Vaccines-Docu-series---Episode-3:1?lid=febf9e9b39f9022dd019c9a60fc992fa33a4ce0c
+- https://odysee.com/@QuantumRhino:9/The-Truth-About-Vaccines-Docu-series---Episode-2:f?lid=febf9e9b39f9022dd019c9a60fc992fa33a4ce0c
+- https://odysee.com/@QuantumRhino:9/The-Truth-About-Vaccines-Docu-series---Episode-1:c
+- https://odysee.com/@QuantumRhino:9/The-Truth-About-Vaccines-Docu-series---Episode-8:6
+- https://odysee.com/@QuantumRhino:9/The-Truth-About-Vaccines-Docu-series---Episode-10:7
+- https://odysee.com/@breadcrumbs.2.satori:2/Vaccines-101:8
+- https://odysee.com/@umlingo:3/TTAV-2020-Episode10-Vanquishing_the_Vaccinati_with_Veracity:9
+- https://odysee.com/@tmot:0/tav4:d
+- https://odysee.com/@TruthVault:0/The-Truth-About-Vaccines-Docu-Series-Episode-9:7
+- https://odysee.com/@VidarOdensson:7/The-Truth-About-Vaccines-Episode-07-(2017):b
+- https://odysee.com/@VidarOdensson:7/The-Truth-About-Vaccines-Episode-06-(2017):a
+- https://odysee.com/@VidarOdensson:7/The-Truth-About-Vaccines-Episode-05-(2017):6
+- https://odysee.com/@VidarOdensson:7/The-Truth-About-Vaccines-Episode-04-(2017):6
+- https://odysee.com/@VidarOdensson:7/The-Truth-About-Vaccines-Episode-03-(2017):6
+- https://odysee.com/@VidarOdensson:7/The-Truth-About-Vaccines-Episode-02-(2017):e
+- https://odysee.com/@VidarOdensson:7/The-Truth-About-Vaccines-Episode-01-(2017):e
+- https://odysee.com/@umlingo:3/THE-TRUTH-ABOUT-VACCINES---Part-6-(Full-Documentary):c
+- https://odysee.com/@umlingo:3/THE-TRUTH-ABOUT-VACCINES---Part-5-(Full-Documentary):9
+- https://odysee.com/@AWIT_CO:3/The-Truth-About-Vaccines-Docu-series---Episode-1---Robert-F.-Kennedy-Jr-Interview---Smallpox-Vaccine:e
+- https://odysee.com/@VidarOdensson:7/The-Truth-About-Vaccines-Episode-06-(2017):a
+- https://odysee.com/@VidarOdensson:7/The-Truth-About-Vaccines-Episode-05-(2017):6
+- https://odysee.com/@cuarentena:f/TTAV-Vaccine-Roundtable-part1:2
+- https://odysee.com/@cuarentena:f/TTAV-Vaccine-Roundtable-part2:5
+
+
 https://odysee.com/@IntotheLight:d1/202205-07-0:4
 
 https://odysee.com/@bonniesmit:0/352-PROPAGANDA-EXPOSED---Episode-8---DEFEATING-DECEIT---TRIUMPHING-OVER-TYRANNY---9th-MAY-2022:e
