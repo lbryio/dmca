@@ -20,6 +20,24 @@ Director WW Online Enforcement
 <personal information extraxted>
 agent@warnerbros.copyright-notice.com
  
+Elvis 2022
+
+https://odysee.com/@Digitaldeath:7/ELVIS---2022:5
+
+House of the Dragon
+
+https://odysee.com/@HouseoftheDragon:0/HouseoftheDragonT1E1OsHerdeirosdoDrag%C3%A3o:3
+
+https://odysee.com/House.of.the.Dragon.S01E03.FRENCH.WEBRip.1080p.x264.AAC.5.1-ODD:5
+
+https://odysee.com/@HouseoftheDragon:0/HouseoftheDragonT1E3OSegundodeseuNome:1
+
+https://odysee.com/@HouseoftheDragon:0/HouseoftheDragonT1E2OPr%C3%ADncipeCanalha:7
+
+The Conjuring: The Devil Made Me Do It
+
+https://odysee.com/The.Conjuring.The.Devil.Made.Me.Do.It.2021-trailer.:c  
+ 
 https://odysee.com/@tog:5/House.of.the.Dragon.S01E02.WEB.h264-RBB:f  
  
 https://odysee.com/@RyoSaeba%3A5/Tool---%C3%86nema%3Ac 
