@@ -45,6 +45,22 @@ work.
 Each of these URLs loads a web page that allows to launch the download of
 the copyrighted work.
   
+- https://odysee.com/9852654161531641:4
+- https://odysee.com/91651645514616:b
+- https://odysee.com/9516514143131:d  
+- https://odysee.com/65265141653:9
+- https://odysee.com/916516541414314:a
+- https://odysee.com/95825295826526:5
+- https://odysee.com/816513513516:1
+- https://odysee.com/86151641613216:d
+- https://odysee.com/6216513134321:c
+- https://odysee.com/94865131645165146:3
+- https://odysee.com/98549816165165:3
+- https://odysee.com/8974616516416513:0
+- https://odysee.com/916516416413154:b
+- https://odysee.com/9846513513421:4
+- https://odysee.com/9895265194199:6
+- https://odysee.com/965165164132314561:c  
 - https://odysee.com/Le-Pont-Du-Nord.1981:9  
 - https://odysee.com/72753753788337883788235:0
 - https://odysee.com/@STRiCK3R:4/Jungle.Cruise.2021.FRENCH.WEB.720p.H264.AAC-MesVOD:6
