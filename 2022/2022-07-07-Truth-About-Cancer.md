@@ -2,6 +2,57 @@ To Whom It May Concern,
 
 I am reaching out on behalf of my company, the copyright owner, to ask that you take down the following videos immediately.
 
+https://odysee.com/@clwnthr:4/TTAPC-EP7:7
+
+https://odysee.com/@clwnthr:4/TTAPC-EP7:7 
+
+https://odysee.com/@Holisticmedicine:0/Episode-7:7a
+
+https://odysee.com/@DrRobertYoung:7/keynote-speaker-dr.-galina-migalko-md:7
+
+https://odysee.com/@Thatwhichisimportant:1/BDD4511C-5E20-4AC1-873B-C3079A89FA9E:b
+
+https://odysee.com/@DOCofDETOX:a/the-truth-about-cancer-live-2021:3
+
+https://odysee.com/@MOUSE4:3/EPISODE-6-CLEAN-FOODS---THE-CANCER-FREE-DIET:d
+
+https://odysee.com/@MOUSE4:3/EPISODE-1-MODERN-MEDICINE---THE-CANCER-PANDEMIC:3
+
+https://odysee.com/@MOUSE4:3/EPISODE-5-NATURES-PHARMACY:8
+
+https://odysee.com/@MOUSE4:3/EPISODE-10-DOCTORS-ORDERS:6
+
+https://odysee.com/@TruthFreedomHealth:0/TTAV-Episode-1:0
+
+https://odysee.com/@TruthFreedomHealth:0/truthfreeadomhealth:0
+
+https://odysee.com/@TruthFreedomHealth:0/TTAV-Episode-3:7
+
+https://odysee.com/@TruthFreedomHealth:0/TTAV-Episode-4:4
+
+https://odysee.com/@TruthFreedomHealth:0/TTAV-Episode-5:d
+
+https://odysee.com/@TruthFreedomHealth:0/TTAV-Episode-6:7
+
+https://odysee.com/@TruthFreedomHealth:0/TTAV-Episode-7:8
+
+https://odysee.com/@TruthFreedomHealth:0/TTAV-Episode-8:4
+
+https://odysee.com/@TruthFreedomHealth:0/TTAV-Episode-9:0
+https://odysee.com/@octopodadesign:4/Ttav-Ep-1-HD:2
+
+https://odysee.com/@octopodadesign:4/Ttav-Ep-2-HD:6
+
+https://odysee.com/@octopodadesign:4/Ttav-Ep-3-HD:7
+
+https://odysee.com/@octopodadesign:4/Ttav-Ep-4-HD:5
+
+https://odysee.com/TTAV2020--Vaccine-Roundtable--(Part-2):3
+lbry://TTAV2020--Vaccine-Roundtable--(Part-2)#3
+
+https://odysee.com/@jwilliamhunt:6/Charlene-Bollinger-Interview-with-Dr.-Judy-Mikovits-(Part-1)-2-0vlaY8-S4:f https://odysee.com/@jwilliamhunt:6/Charlene-Bollinger-Interview-with-Dr.-Judy-Mikovits-(Part-2)-zU9P-ox4uOY:9
+https://odysee.com/@marengeti:c/Charlene-Bollinger-Interview-with-Dr.-Judy-Mikovits-Part-1:1 https://odysee.com/@marengeti:c/Charlene-Bollinger-Interview-with-Dr.-Judy-Mikovits-Part-2:f
+
 - https://odysee.com/@Evolutionary_Life_Video_Archive:3/The-Truth-About-Vaccines-Docuseries---Episode-1---360p:4
 - https://odysee.com/@CanadianPatriot7120:2/The-Truth-About-Vaccines-Docu-Series---Episode-5---HPV-and-Hepatitis-B-Vaccines:f?lid=20b664da79ff66cc4b3edf2ab2e0d4caadfc11c6
 - https://odysee.com/@HumanitysVault:a/Vaccine-Roundtable:1
