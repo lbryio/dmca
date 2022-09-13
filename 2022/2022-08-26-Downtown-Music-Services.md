@@ -10,7 +10,10 @@ By continuing to exploit this video, Odysee is complicit in this messaging.
 
 Neither Downtown nor Ms. Merchant have authorized any use of the Composition by Patriotic Alternative and demand that you immediately cease and desist from the exploitation thereof. Failure to comply with this demand will leave Downtown with no choice but to explore its full range of legal and equitable rights and remedies under copyright, trademark and other applicable laws.
 
-Infringing content: https://odysee.com/@PatAltScotland:c/KinsfolkMotherland:3
+Infringing content: 
+- https://odysee.com/@PatAltScotland:c/KinsfolkMotherland:3
+- https://odysee.com/@PatAltScotland:c/KinsfolkCradleMe:2 
+- https://odysee.com/@LauraTowler:3/TeaTime056:c 
 
 
 Bea Koramblyum
