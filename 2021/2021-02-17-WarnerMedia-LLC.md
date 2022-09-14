@@ -20,6 +20,161 @@ Director WW Online Enforcement
 <personal information extraxted>
 agent@warnerbros.copyright-notice.com
  
+Fringe
+ 
+https://odysee.com/FRINGE-S01-E13---M%C3%A9tamorphose:3
+
+ https://odysee.com/FRINGE-S01-E11-:a
+
+ https://odysee.com/FRINGE-S01-E12-:c
+
+Godzilla vs. Kong
+
+ https://odysee.com/@OnrainMovie%E3%82%AA%E3%83%B3%E3%83%A9%E3%82%A4%E3%83%B3:4/GodzillavsKong:b
+
+House of the Dragon
+
+ https://odysee.com/@audiolibros:a/LaCasadelDragon1x04:4
+
+ https://odysee.com/@audiolibros:a/LaCasadelDragon1x03:6
+
+Joker
+
+ https://odysee.com/@OnrainMovie%E3%82%AA%E3%83%B3%E3%83%A9%E3%82%A4%E3%83%B3:4/Joker(2019):e
+
+Mortal Kombat
+
+ https://odysee.com/@OnrainMovie%E3%82%AA%E3%83%B3%E3%83%A9%E3%82%A4%E3%83%B3:4/MortalKombat2021:0 
+ 
+Ben 10
+ 
+https://odysee.com/@siberneto:d/Ben_10_2_Sezon_9_B%C3%B6l%C3%BCm:c
+
+https://odysee.com/@siberneto:d/Ben_10_2_Sezon_5_B%C3%B6l%C3%BCm:f
+
+https://odysee.com/@siberneto:d/Ben_10_2_Sezon_7_B%C3%B6l%C3%BCm:1
+
+ https://odysee.com/@siberneto:d/Ben_10_2_Sezon_8_B%C3%B6l%C3%BCm:4
+
+ https://odysee.com/@siberneto:d/Ben_10_2_Sezon_4_B%C3%B6l%C3%BCm:1
+
+ https://odysee.com/@siberneto:d/Ben_10_2_Sezon_6_B%C3%B6l%C3%BCm:7
+
+ https://odysee.com/@siberneto:d/Ben_10_2_Sezon_3_B%C3%B6l%C3%BCm:2
+
+ https://odysee.com/@siberneto:d/Ben_10_2_Sezon_13_B%C3%B6l%C3%BCm:d
+
+ https://odysee.com/@siberneto:d/Ben_10_2_Sezon_2_B%C3%B6l%C3%BCm:b
+
+ https://odysee.com/@siberneto:d/Ben_10_1_Sezon_13_B%C3%B6l%C3%BCm:b
+
+ https://odysee.com/@siberneto:d/Ben_10_2_Sezon_12_B%C3%B6l%C3%BCm:8
+
+ https://odysee.com/@siberneto:d/Ben_10_1_Sezon_11_B%C3%B6l%C3%BCm:1
+
+ https://odysee.com/@siberneto:d/Ben_10_1_Sezon_12_B%C3%B6l%C3%BCm:f
+
+ https://odysee.com/@siberneto:d/Ben_10_2_Sezon_11_B%C3%B6l%C3%BCm:9
+
+ https://odysee.com/@siberneto:d/Ben_10_1_Sezon_10_B%C3%B6l%C3%BCm:4
+
+ https://odysee.com/@siberneto:d/Ben_10_2_Sezon_10_B%C3%B6l%C3%BCm:d
+
+ https://odysee.com/@siberneto:d/Ben_10_1_Sezon_1_B%C3%B6l%C3%BCm:f
+
+ https://odysee.com/@siberneto:d/Ben_10_2_Sezon_1_B%C3%B6l%C3%BCm:d
+
+ https://odysee.com/@siberneto:d/Ben_10_1_Sezon_9_B%C3%B6l%C3%BCm:2
+
+ https://odysee.com/@siberneto:d/Ben_10_1_Sezon_8_B%C3%B6l%C3%BCm:d
+
+ https://odysee.com/@siberneto:d/Ben_10_1_Sezon_7_B%C3%B6l%C3%BCm:5
+
+ https://odysee.com/@siberneto:d/Ben_10_1_Sezon_5_B%C3%B6l%C3%BCm:0
+
+ https://odysee.com/@siberneto:d/Ben_10_1_Sezon_6_B%C3%B6l%C3%BCm:3
+
+ https://odysee.com/@siberneto:d/Ben_10_1_Sezon_4_B%C3%B6l%C3%BCm:8
+
+ https://odysee.com/@siberneto:d/Ben_10_1_Sezon_3_B%C3%B6l%C3%BCm:d
+
+ https://odysee.com/@siberneto:d/Ben_10_1_Sezon_2_B%C3%B6l%C3%BCm:6 
+
+Fringe
+
+https://odysee.com/FRINGE-S01-E10-:6
+
+https://odysee.com/FRINGE-S01-E09-:c
+
+https://odysee.com/FRINGE-S01-E08-:e
+
+https://odysee.com/FRINGE-S01-E07-:2
+
+https://odysee.com/FRINGE-S01-E05-:3
+
+https://odysee.com/FRINGE-S01-E06-:e
+
+https://odysee.com/FRINGE-S01-E04-:3
+
+https://odysee.com/FRINGE-S01-E03-:f
+
+https://odysee.com/FRINGE-S01-E02-:a
+
+https://odysee.com/FRINGE-S01-E01:9
+
+
+House of the Dragon
+
+https://odysee.com/@luisnuz:e/L--C-s--d--Dr-Gn-1x03:1
+
+https://odysee.com/HOTDS01E01:c
+
+
+The Originals
+
+https://odysee.com/@kira:8c/S01E22---From-a-Cradle-To-a-Grave:6
+
+https://odysee.com/@kira:8c/S01E16---Farewell-to-Storyville:2
+
+https://odysee.com/@kira:8c/S01E17---Moon-Over-Bourbon-Street:1
+
+https://odysee.com/@kira:8c/S01E19---An-Unblinking-Death:9
+
+https://odysee.com/@kira:8c/S01E21---The-Battle-Of-New-Orleans:e
+
+https://odysee.com/@kira:8c/S01E20---A-Closer-Walk-With-Thee:7
+
+https://odysee.com/@kira:8c/S01E18---The-Big-Uneasy:c
+
+https://odysee.com/@kira:8c/S01E15---Le-Grand-Guignol:0
+
+https://odysee.com/@kira:8c/S01E14---Long-Way-Back-from-Hell:f
+
+https://odysee.com/@kira:8c/S01E13---Crescent-City:a
+
+https://odysee.com/@kira:8c/S01E12---Dance-Back-from-the-Grave:8
+
+https://odysee.com/@kira:8c/S01E11---Apr%C3%A8s-Moi,-Le-D%C3%A9luge-:0
+
+https://odysee.com/@kira:8c/S01E10---The-Casket-Girls:4
+
+https://odysee.com/@kira:8c/S01E08---The-River-in-Reverse:8
+
+https://odysee.com/@kira:8c/S01E09---Reigning-Pain-in-New-Orleans:e
+
+https://odysee.com/@kira:8c/S01E06---Fruit-of-the-Poisoned-Tree:e
+
+https://odysee.com/@kira:8c/S01E07---Bloodletting:8
+
+https://odysee.com/@kira:8c/S01E04---Girl-in-New-Orleans:6
+
+https://odysee.com/@kira:8c/S01E05---Sinners-and-Saints:1
+
+https://odysee.com/@kira:8c/S01E03---Tangled-Up-in-Blue:f
+
+https://odysee.com/@kira:8c/S01E01---Always-and-Forever:b
+
+https://odysee.com/@kira:8c/S01E02---House-of-the-Rising-Son:f 
  
 https://odysee.com/@InformationIncorporated:a/The.Anarchists.S01E01.720p.HMAX.WEBRip.x264-GalaxyTV:d  
 
