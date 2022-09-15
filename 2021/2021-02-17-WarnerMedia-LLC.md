@@ -20,6 +20,47 @@ Director WW Online Enforcement
 <personal information extraxted>
 agent@warnerbros.copyright-notice.com
  
+ 
+ 
+Fringe
+
+https://odysee.com/FRINGE-S01-E20-:6
+
+https://odysee.com/FRINGE-S01-E15-:c
+
+https://odysee.com/FRINGE-S01-E16:0
+
+https://odysee.com/FRINGE-S01-E17:e
+
+https://odysee.com/FRINGE-S01-E19-:4
+
+https://odysee.com/FRINGE-S01-E18-:5
+
+https://odysee.com/FRINGE-S01-E14:9
+
+https://odysee.com/FRINGE-S01-E13-:8
+
+
+House of the Dragon
+
+https://odysee.com/House.of.the.Dragon-S01E04-King.of.the.Narrow.Sea-ENGSUB:1
+
+https://odysee.com/House.of.the.Dragon.S01E04.-:0
+
+https://odysee.com/fulcrum-hotd.s01e04.webrip:e
+
+
+The Mentalist
+
+https://odysee.com/The.Mentalist.S01E07-Seeing.Red-ENGSUB:b
+
+
+Westworld
+
+https://odysee.com/@KinoKonig:2/WestworldS01E06:2 
+ 
+https://odysee.com/@Videoclub:1/Elvis-(2022):d  
+ 
 Fringe
  
 https://odysee.com/FRINGE-S01-E13---M%C3%A9tamorphose:3
