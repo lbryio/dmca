@@ -20,7 +20,58 @@ Director WW Online Enforcement
 <personal information extraxted>
 agent@warnerbros.copyright-notice.com
  
- 
+House of the Dragon
+
+https://odysee.com/@mr.lejenda1:7/La-casa-del-drag%C3%B3n--1%C3%974-retropelis:5
+
+https://odysee.com/@mr.lejenda1:7/La-casa-del-drag%C3%B3n--1%C3%972-retropelis-HD:d
+
+https://odysee.com/@mr.lejenda1:7/La-casa-del-drag%C3%B3n--1%C3%973-retropelis:9
+
+https://odysee.com/@mr.lejenda1:7/La-casa-del-drag%C3%B3n--1%C3%971-retropelis:e
+
+
+Rick and Morty
+
+https://odysee.com/@rcorreas:b/0209:4
+
+https://odysee.com/@rcorreas:b/0210:9
+
+https://odysee.com/@rcorreas:b/0205:2f
+
+https://odysee.com/@rcorreas:b/0208:8
+
+https://odysee.com/@rcorreas:b/0207:bb
+
+https://odysee.com/@rcorreas:b/0204:3b
+
+https://odysee.com/@rcorreas:b/0206:0
+
+https://odysee.com/@rcorreas:b/0203:3
+
+https://odysee.com/@rcorreas:b/0202:7a
+
+https://odysee.com/@rcorreas:b/0201:0
+
+https://odysee.com/@rcorreas:b/0110:c
+
+https://odysee.com/@rcorreas:b/0111:f3
+
+https://odysee.com/@rcorreas:b/0109:c4
+
+https://odysee.com/@rcorreas:b/0106:5c
+
+https://odysee.com/@rcorreas:b/0108:7
+
+https://odysee.com/@rcorreas:b/0107:eae
+
+https://odysee.com/@rcorreas:b/0105:d
+
+https://odysee.com/@rcorreas:b/0103:05
+
+https://odysee.com/@rcorreas:b/0104:c
+
+https://odysee.com/@rcorreas:b/0102:4 
  
 Fringe
 
