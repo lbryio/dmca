@@ -14,6 +14,8 @@ I am the rights holder of the following six videos uploaded to Odysee.com withou
 
 6) https://odysee.com/@czr5014:3/DeathBedConfessionMoonLanding:1
 
+7) https://odysee.com/@TheCharlieWardShow:f/moon-landing-death-bed-confession-flydownloader:0
+
 Here is the link to my video on my channel: https://odysee.com/@BartSibrel:2/SD-Edited-with-Logo:c (This is a re-upload from my original version, which I upload first on Youtube on September 11, at 7:00 Central Time, which I took down on September 14 to add my watermark to avoid this problem in the future).
 
 The video is called "Moon Landing Hoax Confession"
