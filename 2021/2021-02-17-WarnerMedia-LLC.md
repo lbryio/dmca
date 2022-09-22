@@ -22,6 +22,16 @@ agent@warnerbros.copyright-notice.com
  
 House of the Dragon
 
+https://odysee.com/House.of.the.Dragon.S01E05.:f
+
+https://odysee.com/@luisnuz:e/Watch-Dtr-1X05-720p-Lat-mkv:1
+
+https://odysee.com/@Lacasadeldragon:0/La-Casa-del-Dragn-Episodio-5-:6
+
+https://odysee.com/@CineSubz:b/House.of.the.Dragon.S01E05.WEBRip--CineSubz.com--720p:e 
+ 
+House of the Dragon
+
 https://odysee.com/@mr.lejenda1:7/La-casa-del-drag%C3%B3n--1%C3%974-retropelis:5
 
 https://odysee.com/@mr.lejenda1:7/La-casa-del-drag%C3%B3n--1%C3%972-retropelis-HD:d
