@@ -2,6 +2,14 @@ To Whom It May Concern,
 
 I am reaching out on behalf of my company, the copyright owner, to ask that you take down the following videos immediately.
 
+Cancer Cure Deception:
+
+https://odysee.com/@DoctorYourself:d/Cancer-Cure-Deception-DVD-Ty-Bollinger:6
+
+Cancer Step Outside The Box:
+
+https://odysee.com/@ArchivesPourLaVerite:d/Ty-Bollinger-Cancer,-Sortez-de-La-Boite-5e-edition-2010:3
+
 https://odysee.com/@clwnthr:4/TTAPC-EP7:7
 
 https://odysee.com/@clwnthr:4/TTAPC-EP7:7 
