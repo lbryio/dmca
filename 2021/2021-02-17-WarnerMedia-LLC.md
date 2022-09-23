@@ -22,6 +22,18 @@ agent@warnerbros.copyright-notice.com
  
 House of the Dragon
 
+https://odysee.com/@MARIOLANO:4/ser-c.:c
+
+https://odysee.com/House.of.the.Dragon-S01E05-We.Light.the.Way-ENGSUB:4
+
+The Mentalist
+
+https://odysee.com/The.Mentalist.S01E09-Flame.Red-ENGSUB:7
+
+https://odysee.com/The.Mentalist.S01E08-The.Thin.Red.Line-ENGSUB:f 
+ 
+House of the Dragon
+
 https://odysee.com/House.of.the.Dragon.S01E05.:f
 
 https://odysee.com/@luisnuz:e/Watch-Dtr-1X05-720p-Lat-mkv:1
