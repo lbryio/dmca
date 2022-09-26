@@ -12,6 +12,28 @@ The web page where the one video they're posting was originally shared is on thi
 
 https://www.defendingutah.org/post/2021/08/12/4191/
 
+The unauthorized and infringing channel can be found at:
+https://odysee.com/@TreeofLibertySociety:0
+
+Multiple unauthorized and infringing videos can be found at these links:
+https://odysee.com/@TreeofLibertySociety:0/The-utah-illuminatti-segment:7
+
+https://odysee.com/@TreeofLibertySociety:0/Federal-Reserve-Ensnares-Utah-fixed:a
+
+https://odysee.com/@TreeofLibertySociety:0/Utah's-Secret-Combinations:1
+
+In these videos on Odysee you can see they are the same as the original, but the infringer has edited them to try to cover up my logo and namesake. In all of them, he has only partially succeeded in doing this.
+
+Four example screenshots of infringing content, with some highlights, where you can see my brand plus his attempt to rebrand:
+
+https://libertypublic.blob.core.windows.net/www-defendingutah-org/infringement/INFRINGING-REBRAND1.jpg
+
+https://libertypublic.blob.core.windows.net/www-defendingutah-org/infringement/INFRINGING-REBRAND2.jpg
+
+https://libertypublic.blob.core.windows.net/www-defendingutah-org/infringement/INFRINGING-REBRAND3.jpg
+
+https://libertypublic.blob.core.windows.net/www-defendingutah-org/infringement/INFRINGING-REBRAND4.jpg
+
 UNAUTHORIZED CONTENT
 
 The unauthorized and infringing channel can be found at:
