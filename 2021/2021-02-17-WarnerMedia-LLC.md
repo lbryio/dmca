@@ -20,6 +20,58 @@ Director WW Online Enforcement
 <personal information extraxted>
 agent@warnerbros.copyright-notice.com
  
+ 
+Elvis 2022
+
+https://odysee.com/@Qmediasouvenirs:3/El_vis-2022:4
+
+https://odysee.com/Elvis.2022.WEBRip--CineSubz.com--1080p:a
+
+
+House of the Dragon
+
+https://odysee.com/@Lacasadeldragon:0/Ver-La-Casa-del-Dragn-Episodio-3-:3
+
+https://odysee.com/@Lacasadeldragon:0/La-Casa-del-Dragn-Episodio-1--:3
+
+https://odysee.com/@Lacasadeldragon:0/Ver-La-Casa-del-Dragn-Episodio-2-:c
+
+https://odysee.com/@Lacasadeldragon:0/La-Casa-del-Dragn-Episodio-4--:d
+
+https://odysee.com/@luisnuz:e/Watch-Dtr-1X05-720p-Lat-mkv:1 
+
+Aquaman 2018
+
+https://odysee.com/Aquaman-(Doblada-al-Espa%C3%B1ol):0
+
+Ready Player One
+
+https://odysee.com/Ready-Player-One-(Subtitulado-al-Espa%C3%B1pl):f
+
+The Suicide Squad
+
+https://odysee.com/@DisneyyPluss:6/SuicideSquad2021:a 
+ 
+https://odysee.com/Dune-(Doblada-al-Espa%C3%B1ol):9
+ 
+https://odysee.com/@Gladiator33:4/The-Suicide-Squad-2021-VF-gladiator33-movie-film:4  
+ 
+House of the Dragon
+
+https://odysee.com/s01e03:23
+
+
+The Mentalist
+
+https://odysee.com/The.Mentalist.S01E10-Red.Brick.and.Ivy-ENGSUB:d
+
+
+Westworld
+
+https://odysee.com/@KinoKonig:2/WestworldS01E10:1
+
+https://odysee.com/@KinoKonig:2/WestworldS01E09:c 
+ 
 House of the Dragon
 
 https://odysee.com/@MARIOLANO:4/ser-c.:c
