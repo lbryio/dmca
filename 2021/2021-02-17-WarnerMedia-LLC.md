@@ -20,7 +20,25 @@ Director WW Online Enforcement
 <personal information extraxted>
 agent@warnerbros.copyright-notice.com
  
- 
+Harley Quinn
+
+https://odysee.com/HQS01E01:c
+
+
+House of the Dragon
+
+https://odysee.com/House.of.the.Dragon.S01E07:c
+
+https://odysee.com/fulcrum-hotd.s01e07.720p.web:9
+
+
+The Last Ship
+
+https://odysee.com/@KTL:c/The.Last.Ship.2014.S01e05.El.Toro.720P.Hdtv.X264-Dimension:d
+
+https://odysee.com/@KTL:c/The.Last.Ship.2014.S01E07.SOS.720p.HDTV.X264-LOL:c
+
+https://odysee.com/@KTL:c/The.Last.Ship.2014.S01e06.Lockdown.720P.Hdtv.X264-Dimension:6 
  
 https://odysee.com/@LaV%C3%A9rit%C3%A9VraieDocumentairesetFilms:2/Argo:d 
  
