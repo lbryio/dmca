@@ -11,6 +11,34 @@ Authorized example of work: https://www.starsetonline.com/
 Authorization From Copyright Holder To Request Removal: Provided Upon Request
 
 I believe that the following materials are infringing:
+- https://odysee.com/@CrypticCrytic:9/What-Is-A-Woman-Presentation:3
+- https://odysee.com/@Hemeroteca:f/%C2%BFQU%C3%89-ES-UNA-MUJER---DOCUMENTAL-DE-MATT-WALSH---SUBTITULADO-AL-ESPA%C3%91OL--:a
+- https://odysee.com/@Docuteca:5/%C2%BFQU%C3%89-ES-UNA-MUJER---DOCUMENTAL-DE-MATT-WALSH---SUBTITULADO-AL-ESPA%C3%91OL---PF-SAN-FRANCISCO-CHIQUIMULA:6
+- https://odysee.com/@ReelNews:8/Matt-Walsh-asks...:0
+- https://odysee.com/@RizoliTV:d/What-Is-A-Woman-(2022)-Full-Documentary:36
+- https://odysee.com/@SockPuppet:e/whatisawoman:91
+- https://odysee.com/@ETHERIC:d/QU'EST-CE-QU'UNE-FEMME-%C2%A7-(Documentaire-WHAT-IS-A-WOMAN%C2%A7)-STFR---Impellobel.odysee-(2):8
+- https://odysee.com/@OnderKoffer:0/What.is.a.Woman.2022:6
+- https://odysee.com/@Impellobel.odysee:b/What-is-a-Woman:b
+- https://odysee.com/@SpeakfreelyReacts:0/what-is-a-women-matt-walsh:2
+- https://odysee.com/@Got42d:3/%F0%9F%92%A5%E2%9C%A8%F0%9F%92%A5The-Truth-about-What-Is-a-Woman%E2%9D%93-(Matt-Walsh-2022):1
+- https://odysee.com/@Robert-Self:a0/'What-Is-A-Woman'-Full-BRILLIANT-Documentary,-A-Matt-Walsh-Production-(3rd-June):6
+- https://odysee.com/@Reachthedivine:d/what-is-a-woman-:e
+- https://odysee.com/@WakeUpMirror:3/mwmw:9
+- https://odysee.com/@earthempaths:6/What-Is-A-Woman-2022:8f
+- https://odysee.com/@MatrixFree:4e/VID_20220613_142532_672:7
+- https://odysee.com/@HelmetCheddar:5/what-is-a-woman:39
+- https://odysee.com/@TheMemoryHole:1/what-is-a-woman:ab3
+- https://odysee.com/@DeepSixVideos:d/WhatIsAWoman:ad
+- https://odysee.com/@collectif-etre-trans:4/Qu'est-ce-qu-une-femme-VOSTFR-MattWalsh-What-is-a-Woman:a
+- https://odysee.com/@inVtro:4/What-is-a-Woman--Spanish-subs:3
+- https://odysee.com/@HereAndNow:a/What-Is-A-Woman-(2022)-full-documentary---The-Daily-Wire:0
+- https://odysee.com/@Steven:d/What-Is-A-Woman-2022:36
+- https://odysee.com/@elby1984:0/Documentaire-WHAT-IS-A-WOMAN-VOSTFR:d
+- https://odysee.com/@CineSubz%3Ab/Vesper.2022.WEBRip--CineSubz.com--720p%3A2
+- https://odysee.com/Vesper.2022.WEBRip.x264-ION10%3A4
+- https://odysee.com/Vesper.2022.WEBRip.x264-ION10%3Ab
+- https://odysee.com/Vesper%3Aa
 - https://odysee.com/@Johnny_Dangerously%3A1/Tool%2C-Sober%2C-Guitar%2C-Effects.%3Ac
 - https://odysee.com/@RyoSaeba%3A5/Tool---Prison-sex%3A2
 - https://odysee.com/@Avith_Ortega%3A0/Tool---Parabola-%28Fan-Remastering%2C-Dynamic-Range-restoration%29%3A9
