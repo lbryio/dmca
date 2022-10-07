@@ -20,6 +20,18 @@ Director WW Online Enforcement
 <personal information extraxted>
 agent@warnerbros.copyright-notice.com
  
+ 
+https://odysee.com/House.of.Dragon.s01e07.Flixmovies:a
+
+https://odysee.com/House.of.Dragon.s01e06.Flixmovies:1
+
+The Last Ship
+
+https://odysee.com/@KTL:c/The.Last.Ship.2014.S01E08.Two.Sailors.Walk.Into.A.Bar.HDTV.x264-LOL:0 
+ 
+ 
+https://odysee.com/@FLIXMOVIES:7?view=about 
+ 
 Harley Quinn
 
 https://odysee.com/HQS01E01:c
