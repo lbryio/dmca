@@ -5,6 +5,71 @@ The copyright of the film below belongs to us and we have not licensed anyone to
 
 ------
 
+URL:
+https://odysee.com/@KAKKOU-NO-IINAZUKE----dublado:a/-AnimeFire.net--Yuru-Camp%E2%96%B3-(Dublado)---Epis%C3%B3dio-4-(HD)
+[16]:8
+
+https://odysee.com/@KAKKOU-NO-IINAZUKE----dublado:a/-AnimeFire.net--Yuru-Camp%E2%96%B3-(Dublado)---Epis%C3%B3dio-3-(HD)
+[17]:3
+
+https://odysee.com/@KAKKOU-NO-IINAZUKE----dublado:a/-AnimeFire.net--Yuru-Camp%E2%96%B3-(Dublado)---Epis%C3%B3dio-2-(HD)
+[18]:d
+
+https://odysee.com/@KAKKOU-NO-IINAZUKE----dublado:a/-AnimeFire.net--Yuru-Camp%E2%96%B3-(Dublado)---Epis%C3%B3dio-1-(HD)
+[19]:2
+
+https://odysee.com/@joanivan17:4/descargar-bakumatsu-12-12-y-bakumatsu:c
+[20]
+
+https://odysee.com/@Wizyost:4/Marathon-Yuru-Camp-S2:d [21]
+
+https://odysee.com/@FS_anime_clips:6/masamune_explaining_surgery:a
+[1]
+https://odysee.com/@FS_anime_clips:6/masamune_yoshino_spin:3 [2]
+
+https://odysee.com/@Wizyost:4/Marathon--Yuru-Camp--S1:e [3]
+
+https://odysee.com/@Yuru-Camp%E2%96%B3--------(Dublado):c?view=about
+
+https://odysee.com/@alishahasssan6:c?view=about
+
+https://odysee.com/@TheRobloxCivillian:b/tokyo-ghoul-english-dub-goes-kinda-hard:7
+[1]
+
+https://odysee.com/@Donghua:f/tokyo-ghoul-amv-gangsta's-paradise:f
+[2]
+
+https://odysee.com/@kninja:1/fantasy-x-tokyo-ghoul-ken-kaneki-amv:9
+[3]
+
+https://odysee.com/@Donghua:f/tokyo-ghoul-toka:3 [4]
+
+https://odysee.com/@Animeweeklytv:a/tokyo-ghoul-kaneki-vs-naki:7 [5]
+
+https://odysee.com/@Videoshort:8/tokyo-ghoul-(opening-1)-shorts-anime:1
+[6]
+
+https://odysee.com/@Anisongs:4/TokyoGhoulOP:7 [7]
+
+https://odysee.com/TOKYO-GHOUL-S2-E3:d [8]
+
+https://odysee.com/TOKYO-GHOUL-S2-E2:6 [9]
+
+https://odysee.com/TOKYO-GHOUL-S2-E11:e [10]
+
+https://odysee.com/TOKYO-GHOUL-S2-E8:3 [11]
+
+https://odysee.com/TOKYO-GHOUL-S2-E7:1 [12]
+
+https://odysee.com/TOKYO-GHOUL-S2-E6:e [13]
+
+https://odysee.com/TOKYO-GHOUL-S2-E5:1 [14]
+
+https://odysee.com/TOKYO-GHOUL-S2-E12:0 [15]
+
+https://odysee.com/TOKYO-GHOUL-S2-E9:d [16]
+
+https://odysee.com/@Lokoporanimes:4/akatsukinoyona:3 [17]
 
 https://odysee.com/@AnimeLat:e/TokyoGhoul1:4
 
