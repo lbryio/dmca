@@ -4,6 +4,26 @@ I am contacting you on behalf of Disney Enterprises, Inc. and/or its subsidiarie
 
 Copyrighted work(s) infringed upon:
 
+ https://odysee.com/@Fixxer:8/Star.Wars.Episode.V.-.The.Empire.Strikes.Back.1980.720p.BluRay.x264--YTS.AM-:e
+ 
+ https://odysee.com/eternals-720p:e
+ 
+ https://odysee.com/eternals-720p:e
+ 
+ https://odysee.com/Thor-Amor-y-Trueno-(2022)-HD-Latino:6
+ 
+https://odysee.com/@xprovidencia01:d/Ver-Thor--Amor-y-Trueno-(2022):1
+
+https://odysee.com/@Jeanbill:3/Thor--Amor-y-Trueno:1
+
+https://odysee.com/@depeliculas:a/Thor-Amor-y-Trueno:f8
+
+https://odysee.com/@Daleth-Gonzalez:5/Doctor-Strange-en-el-Multiverso-de-la-locura:8
+
+https://odysee.com/@xprovidencia01:d/Doctor-Strange-en-el-Multiverso-de-la-Locura:4
+
+https://odysee.com/@MiCanalFavorito:d/Dr-Strange-2:e
+
 https://odysee.com/@LaV%C3%A9rit%C3%A9VraieDocumentairesetFilms:2/THE-HOT-ZONE---Saison-01-(%C3%89BOLA)---%C3%89pisode-01-(Arriv%C3%A9e)---VF--SERIE-2018-:d
 
 https://odysee.com/@futurama:0/futurama-t3e3:2
