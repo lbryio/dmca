@@ -15,3 +15,9 @@ Respectfully,
 Payday Monsanto 
 
 https://odysee.com/@Whymzksonice:9/Payday-Monsanto---Naked-Truth:9 
+
+ https://odysee.com/@Whymzksonice:9/ODD-TV---They-Live,-We-Sleep-(ft.-Payday-Monsanto):9
+ 
+  https://odysee.com/@Whymzksonice:9/Payday-Monsanto---P.U.K.E.-(Pedophiles-Undoubtedly-Kontrol-Everything)--PizzaGate:8
+  
+   https://odysee.com/@Whymzksonice:9/ODD-TV---They-Live,-We-Sleep-(ft.-Payday-Monsanto):9 
