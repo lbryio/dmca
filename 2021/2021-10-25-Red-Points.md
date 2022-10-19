@@ -13,6 +13,7 @@ Email: games-workshop-cp@redpoints.com
 Phone: +34 934 189 433
 
 2) Games Workshop Limited has confirmed to us that they have a good faith belief that the following content is infringing upon their valid intellectual property rights:
+- https://odysee.com/@DarkiNeTv:3
 - https://odysee.com/@EldritchPenumbra:1/WhatIsAWoman:9a?fbclid=IwAR1INLm3NnQKdlBLxQ5wJWcsszTosAdTyGS1e_OpPP9-8Ufs1AfSZff7YpI
 - https://odysee.com/@wonderingwhatif:b/What-Is-A-Woman-(2022)-Full-Documentary:3
 - https://odysee.com/@inVtro:4/What-is-a-Woman-by-Matt-Walsh:7
