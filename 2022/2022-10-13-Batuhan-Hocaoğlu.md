@@ -13,6 +13,33 @@ The information contained in this notice is correct, and I swear on my honor and
 
 Contents we want removed under copyright
 
+
+https://odysee.com/Kurulus-Osman-Volume-101-Bangla-Subtitle:1
+
+https://odysee.com/@TurkceUrdu:5/Kurulu%C5%9F-Osman-Episode-101:3
+
+https://odysee.com/Kurulu%C5%9F-Osman-100.-B%C3%B6l%C3%BCm-with-Urdu-subtitle:b?src=embed
+
+https://odysee.com/osm101:0?src=embed
+
+https://odysee.com/Kurulus-Osman-Episode-070:1
+
+https://odysee.com/Kurulus-Osman-Episode-029:1
+
+https://odysee.com/Kurulus-Osman-Episode-045:7
+
+https://odysee.com/Kurulus-Osman-Episode-031:b
+
+https://odysee.com/Kurulus-Osman-Episode-044:d
+
+https://odysee.com/Kurulus-Osman-Episode-035:9
+
+https://odysee.com/@ErtugrulTvShortVideos:6/Kurulus-Osman-Episode-51-With-Urdu-Hindi-Dubbing-Part-2:6
+
+https://odysee.com/@ErtugrulTvShortVideos:6/Kurulus-Osman-Episode-51-With-Urdu-Hindi-Dubbing-Part-1:3
+
+https://odysee.com/Kurulus-Osman-Episode-88-Bangla-Subtitles-HD:0
+
 https://odysee.com/osman-82-bd-720:8
 
 https://odysee.com/osman-75:f
