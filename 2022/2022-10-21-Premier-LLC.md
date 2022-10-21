@@ -1,9 +1,13 @@
 
 Person name: Arefev Matvey;
+
 Company: Premier LLC;
+
 Position: Manager;
+
 E-mail: marefev@gpm-rtv.ru;
-Phone: +7 (495) 783-30-80;
+
+<personal information reducted>
 Date: 21.10.2022;
 
 Allegedly Infringing items or materials: Hudozhnik. The URLs where our copyrighted material is located include https://premier.one
