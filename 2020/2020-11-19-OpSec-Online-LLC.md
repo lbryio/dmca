@@ -11,6 +11,12 @@ BIG BROTHER BRASIL (2020)
   
 Copyright infringing material or activity found at the following URLs:
 
+http://odysee.com/@Kendy:3/Creed-2.-2018-AB-1080p.-CZ-dab.:4
+
+http://odysee.com/@lovetowatchmovies:7/RoboCop-3-(1993):9
+
+http://odysee.com/@WolfFenrirMountains:3/vikings-song-the-path-to-valhalla-by:7
+
 http://odysee.com/@Katharina_vom_Tanneneck:c/2000-Mules_sub_german:1
 
 http://odysee.com/@NinjenShikkaku:c/2000Mules-DineshDSouza-2022:9
