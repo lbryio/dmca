@@ -14,6 +14,8 @@ Jacksonville, Florida
 
 The following works are the copyrighted property of All Elite Wrestling,
 LLC:
+- https://odysee.com/aew-dark-110122:3
+- https://odysee.com/aew-rampage-21-oct-2022:a
 - https://odysee.com/AEW.Dynamite.2022.05.04:6
 - https://odysee.com/AEW_Dynamite_-_June_22_2022:7
 - https://odysee.com/aewdynamite20220623:2
