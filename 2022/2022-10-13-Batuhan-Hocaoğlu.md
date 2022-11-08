@@ -13,6 +13,46 @@ The information contained in this notice is correct, and I swear on my honor and
 
 Contents we want removed under copyright
 
+https://odysee.com/@Techbee:5/Osman-EP100-ENG-Full-P2:a
+
+https://odysee.com/@Techbee:5/Osman-EP101-ENG-Full-P1:3
+
+https://odysee.com/@Techbee:5/Osman-EP100-ENG-Full-P1:8
+
+https://odysee.com/Osman-EP102-Urdu_4:f
+
+https://odysee.com/Osman-EP102-Urdu_3:6
+
+https://odysee.com/Osman-EP102-Urdu_2:4
+
+https://odysee.com/Osman-EP102-Urdu_1:8
+
+https://odysee.com/@Techbee:5/EP102_6:f
+
+https://odysee.com/@Techbee:5/EP102_7:b
+
+https://odysee.com/@Techbee:5/Osman-EP101-ENG-Full-P2:0
+
+https://odysee.com/@Techbee:5/EP102_5:4
+
+https://odysee.com/@Techbee:5/EP102_4:c
+
+https://odysee.com/@Techbee:5/EP102_3:2
+
+https://odysee.com/@Techbee:5/EP102_2:c
+
+https://odysee.com/$/search?q=osman%20subtle
+
+https://odysee.com/osman-83:c
+
+https://odysee.com/osman-87:5
+
+https://odysee.com/osman-88:2
+
+https://odysee.com/osman-89:3
+
+https://odysee.com/osman-84-:c
+
 https://odysee.com/KO-93:d132674bd7b7b9903e9bdeef37738a562bb6baea?src=embed
 
 https://odysee.com/KO-092:69eabd68e83e565b87306d9ccf2c8400d6109029?src=embed
