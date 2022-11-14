@@ -4,6 +4,22 @@ I am reaching out on behalf of my company, the copyright owner, to ask that you 
 
 Cancer Cure Deception:
 
+The unauthorized and infringing copy can be found at:
+
+https://odysee.com/@I-Rabbi-T:3/Propaganda-Exposed!-!---Episode-3:b
+
+https://odysee.com/@I-Rabbi-T:3/Propaganda-Exposed---Episode-2:2
+
+These videos were previously reported and are still live. Please remove them immediately as well:
+
+https://odysee.com/@thisworldworks:1/propaganda-exposed-uncensored-episode-2-some:3
+
+https://odysee.com/@thisworldworks:1/propaganda-exposed-uncensored-episode-1-ques:1
+
+https://odysee.com/@thisworldworks:1/propaganda-exposed-uncensored-episode-2-some:3
+
+https://odysee.com/@thisworldworks:1/propaganda-exposed-uncensored-episode-1-ques:1
+
 https://odysee.com/@DoctorYourself:d/Cancer-Cure-Deception-DVD-Ty-Bollinger:6
 
 Cancer Step Outside The Box:
