@@ -8,6 +8,13 @@ We write on behalf of Globo Comunicação e Participações S/A, Globo Internati
 We have noticed that your website is displaying, promoting and/or offering audiovisual (A/V) content from Globo's TV shows:  
 TOTALMENTE DEMAIS (2020)  
 BIG BROTHER BRASIL (2020)  
+
+https://odysee.com/@Rede.movie:8/Pearl.2022.720p.MP4.LEG.BaixarSeriesMP4.xyz:5
+
+Copyright infringing material or activity found at the following URLs:
+http://odysee.com/@Novelasbr:2/3kbef.gaa:1
+
+http://odysee.com/@Novelasbr:2/PIldf.gaa:8
   
 Copyright infringing material or activity found at the following URLs:
 
