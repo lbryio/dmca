@@ -9,6 +9,23 @@ We have noticed that your website is displaying, promoting and/or offering audio
 TOTALMENTE DEMAIS (2020)  
 BIG BROTHER BRASIL (2020)  
 
+Item/Material:
+http://odysee.com/@AwesomeCinema:4/1.-James-Bond's-Dr-No-1962:f
+
+http://odysee.com/@Bartholomew_Roberts:1/Skyfall.2012.1080p:91
+
+http://odysee.com/@LeDoc2000:d/06-Fargo-1996:0
+
+http://odysee.com/@LeDoc2000:d/On-Her-Majestys-Secret-Service-1969:c
+
+http://odysee.com/@Mnt:a/You-Only-Live-Twice---1967:9
+
+http://odysee.com/@MovieandTVchannel:0/007.James.Bond.On.Her.Majesty's.Secret.Service.1969..mp4:0
+
+http://odysee.com/@oldtvshows:e/1965---Thunderball:2
+
+http://odysee.com/@Punisher555:d/Rocky5:2
+
 https://odysee.com/@Rede.movie:8/Pearl.2022.720p.MP4.LEG.BaixarSeriesMP4.xyz:5
 
 Copyright infringing material or activity found at the following URLs:
