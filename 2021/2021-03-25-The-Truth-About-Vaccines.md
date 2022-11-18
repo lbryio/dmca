@@ -5,6 +5,26 @@ The original video for A Global Quest, to which we own the exclusive copyrights,
 
 The unauthorized and infringing copy can be found at:
 
+https://odysee.com/Propaganda-Exposed-UNCENSORED-Episode-9-CRUSHING-CENSORSHIP-COLLUSION-CONSPIRACY:4
+
+https://odysee.com/Propaganda-Exposed-UNCENSORED-Episode-8-DEFEATING-DECEIT-TRIUMPHING-OVER-TYRANNY:b
+
+https://odysee.com/Propaganda-Exposed-UNCENSORED-Episode-7-MODERN-DAY-ROBBER-BARONS:6
+
+https://odysee.com/Propaganda-Exposed-UNCENSORED-Episode-6-FORCED-MEDICINE-THE-BANKING-CARTEL:3
+
+https://odysee.com/Propaganda-Exposed-UNCENSORED-Episode-5-BIG-PHARMA-CIDE:4
+
+https://odysee.com/Propaganda-Exposed-UNCENSORED-Episode-4-EUGENICS-MEDICAL-APARTHEID:0
+
+https://odysee.com/Propaganda-Exposed-UNCENSORED-Episode-3-WEAPONIZING-FEAR-MANDATING-COMPLIANCE:e
+
+https://odysee.com/Propaganda-Exposed-UNCENSORED-Episode-2-SOME-WARS-ARENT-MEANT-TO-BE-WON:f
+
+https://odysee.com/Propaganda-Exposed-UNCENSORED-Episode-1-QUESTION-EVERYTHING:2
+
+https://odysee.com/@thisworldworks:1/propaganda-exposed-uncensored-episode-4-euge:7
+
 https://odysee.com/@HiddenHealth:f/The-Truth-About-Cancer-A-Global-Quest-Episode-6:2
 
 https://odysee.com/@HiddenHealth:f/The-Truth-About-Cancer-A-Global-Quest-Episode-1:0
