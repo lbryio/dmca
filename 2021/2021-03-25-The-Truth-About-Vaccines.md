@@ -5,6 +5,24 @@ The original video for A Global Quest, to which we own the exclusive copyrights,
 
 The unauthorized and infringing copy can be found at:
 
+https://odysee.com/@Saltybull:d/Propaganda-EXPOSED!-The-Truth-About-Vaccines---Episode-9-of-9---CRUSHING-CENSORSHIP,-COLLUSION---CONSPIRACY:4
+
+https://odysee.com/@Saltybull:d/Propaganda-EXPOSED!-The-Truth-About-Vaccines---Episode-8-of-9---DEFEATING-DECEIT---TRIUMPHING-OVER-TYRANNY:7
+
+https://odysee.com/@Saltybull:d/Propaganda-EXPOSED!-The-Truth-About-Vaccines---Episode-7-of-9---MODERN-DAY-ROBBER-BARONS:e
+
+https://odysee.com/@Saltybull:d/Propaganda-EXPOSED!-The-Truth-About-Vaccines---Episode-6-of-9---FORCED-MEDICINE---THE-BANKING-CARTEL:3
+
+https://odysee.com/@Saltybull:d/Propaganda-EXPOSED!-The-Truth-About-Vaccines---Episode-5-of-9---BIG-%E2%80%9CPHARMA-CIDE%E2%80%9D:5
+
+https://odysee.com/@Saltybull:d/Propaganda-EXPOSED!-The-Truth-About-Vaccines---Episode-4-of-9---EUGENICS---MEDICAL-APARTHEID:8
+
+https://odysee.com/@Saltybull:d/Propaganda-EXPOSED!-The-Truth-About-Vaccines---Episode-3-of-9---WEAPONIZING-FEAR---MANDATING-COMPLIANCE-:3
+
+https://odysee.com/@Saltybull:d/Propaganda-EXPOSED!-The-Truth-About-Vaccines---Episode-2-of-9---SOME-WARS-AREN%E2%80%99T-MEANT-TO-BE-WON:7
+
+https://odysee.com/@Saltybull:d/Propaganda-EXPOSED!-The-Truth-About-Vaccines---Episode-1-of-9---QUESTION-EVERYTHING!:b
+
 https://odysee.com/Propaganda-Exposed-UNCENSORED-Episode-9-CRUSHING-CENSORSHIP-COLLUSION-CONSPIRACY:4
 
 https://odysee.com/Propaganda-Exposed-UNCENSORED-Episode-8-DEFEATING-DECEIT-TRIUMPHING-OVER-TYRANNY:b
