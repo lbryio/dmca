@@ -22,7 +22,49 @@ bwilliams@usawatchdog.com
 
 Videos to be Taken Down for Copyright Infringement:
 
+https://odysee.com/@Steven:d/GregHunter:2
 
+https://odysee.com/@staycuriouskeepsmilin':b/greg-hunter-dr-pierre-kory:7
+
+https://odysee.com/@cQfd:7/Interrview-par-Greg-Hunter---Effets-secondaires-des-vaccins-COVID---SIDA---Cancer--Etc:0
+
+https://odysee.com/@EarthNewspaper:e/Alien-Link-To-Human-Destruction-Greg-Hunter-Interviews-Steve-Quayle:5
+
+https://odysee.com/@EarthNewspaper:e/Trump-Raid-Deathblow-To-Democracy-Greg-Hunter-Interviews-Martin-Armstrong:1
+
+https://odysee.com/@yabba:e/Election-2024-martin-armstrong:d
+
+https://odysee.com/@EarthNewspaper:e/Global-Vax-Absolute-Insanity-Greg-Hunter-Interviews-Dr.-Ryan-Cole:d
+
+https://odysee.com/@EarthNewspaper:e/CV19-Vax-Causing-Extreme-Disease-Greg-Hunter-Interviews-Dr.-Elizabeth-Eads:d
+
+https://odysee.com/@EarthNewspaper:e/2023-Will-Be-Year-From-Hell-Greg-Hunter-Interviews-Martin-Armstrong:d
+
+https://odysee.com/@Robert-Self:a0/Everything-Is-A-Lie,-Ruble-Rumbles,-Inflation-Rising-by-Greg-Hunter:1
+
+https://odysee.com/@EarthNewspaper:e/Game-Over,-They%E2%80%99re-Pulling-The-Plug-Greg-Hunter-Interviews-Bill-Holter:a
+
+https://odysee.com/@Nreal:b/Austin_Fitts:a
+
+https://odysee.com/@EarthNewspaper:e/Global-CV19-Vax-Propaganda-Means-Mass-Casualties-Greg-Hunter-Interviews-Dr.-Pierre-Kory:3
+
+https://odysee.com/@shaka2022:9/Coverage-of-2022-Mid-term-Election-Tonight-11-8-22:9
+
+https://odysee.com/@Saltybull:d/Dr.-Michael-Yeadon:d1
+
+https://odysee.com/@Sasquatch:6/aabbtvvfgssa:0
+
+https://odysee.com/@Free_Range_Bum:3/pcr.gregukraine:e
+
+https://odysee.com/@Sasquatch:6/aabbyyoyyf:3
+
+https://odysee.com/@Starseed:6/Edward-Dowd-Joins-Greg-Hunter-Interview-discussing-Vaccine-Fraud-Economic-Collapse-and-the-Revolt-of-the-Rank-and-File:8
+
+https://odysee.com/@bonniesmit:0/Vaccine-Fraud,-Economic-Collapse,-and-the-Revolt-of-the-Rank-and-File-Edward-Dowd-Joins-Greg-Hunter--VIDEO-INTERVIEW-:a
+
+https://odysee.com/@WakeUpMirror:3/CH-GH-VD:6
+
+https://odysee.com/@LadySofia:2/Cliff-High:2
 
 https://odysee.com/@AussieFighter:8/Insane-Globalists-Collapsing-World-Economy-Greg-Hunter-Interviews-Martin-Armstrong:1
 
