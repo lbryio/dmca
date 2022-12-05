@@ -5,6 +5,8 @@ The copyright of the film below belongs to us and we have not licensed anyone to
 
 ------
 
+https://odysee.com/@NHKanime:f/
+
 URL:
 https://odysee.com/@KAKKOU-NO-IINAZUKE----dublado:a/-AnimeFire.net--Yuru-Camp%E2%96%B3-(Dublado)---Epis%C3%B3dio-4-(HD)
 [16]:8
