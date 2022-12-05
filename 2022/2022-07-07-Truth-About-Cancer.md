@@ -6,6 +6,8 @@ Cancer Cure Deception:
 
 The unauthorized and infringing copy can be found at:
 
+https://odysee.com/@MOUSE4:3/Propaganda-Exposed--Uncensored--Episode-1--25-11-2022:4
+
 https://odysee.com/@I-Rabbi-T:3/Propaganda-Exposed!-!---Episode-3:b
 
 https://odysee.com/@I-Rabbi-T:3/Propaganda-Exposed---Episode-2:2
