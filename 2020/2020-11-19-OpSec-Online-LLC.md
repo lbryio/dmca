@@ -9,6 +9,17 @@ We have noticed that your website is displaying, promoting and/or offering audio
 TOTALMENTE DEMAIS (2020)  
 BIG BROTHER BRASIL (2020)  
 
+http://odysee.com/@Bulletbaxter:3/For-Your-Eyes-Only-1981.:4
+
+http://odysee.com/@Cineonlinetorrent:0/007---Casino-Royale---2006:c
+
+http://odysee.com/@Patologie2020:b/Robocop.1987:05
+
+http://odysee.com/@ReluctantMystic:7/Goldfinger1964:2
+
+http://odysee.com/@superbobox:1/Live-and-let-die:e
+
+Infringing Webpage:
 http://odysee.com/@ChristopherKennethBowser:6/The.Green.Knight.2021.1080p:c
 
 http://odysee.com/@cristyhellen_:1/Men---Faces-do-Medo-2022-1080p-BluRay-DUAL-5.1:2
