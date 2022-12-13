@@ -26,6 +26,14 @@ https://odysee.com/@CameraMemes:7/Shots-Eugenics-to-Pandemics-(2022):2
 
 https://odysee.com/@thisworldworks:1/Shots-Eugenics-to-Pandemics-2022:b
 
+https://odysee.com/@AndreySpiridonov:8/Shots-Eugenics-to-Pandemics:7
+
+https://odysee.com/@greatawakening:c/shots-eugenics-pandemics:9
+
+https://odysee.com/@TheAgeofAquariusPI4PSI2:1/Shots-Eugenics-to-Pandemics-to-Toxic-Vaccines-Genocide---History-Documentary:1
+
+https://odysee.com/@TENDAZE:d/Shots-Eugenics-to-Pandemics-to-Toxic-Vaccines-Genocide---History-Documentary:a
+
 For Drugs as Weapons Against Us:
 
 https://odysee.com/Drugs-As-Weapons-Against-Us-2:4
