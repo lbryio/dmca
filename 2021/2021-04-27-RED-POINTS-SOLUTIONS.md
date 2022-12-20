@@ -12,7 +12,8 @@ Email: crehana-cp@redpoints.com
 Phone: +34 934 189 433
 
 2) CREHANA has confirmed to us that they have a good faith belief that the following content is infringing upon their valid intellectual property rights:
-
+- https://odysee.com/@DarkiNeTv:3/afhs83:9
+- https://odysee.com/@Alfondohaysitioof:3
 - https://lbry.tv/@TutorialesEspa%C3%B1ol:2/006-BREAK-2_-Doblaje_-Inicios-y-trayectoria:a
 - https://odysee.com/@reycar:c/el-chiringuito-de-jugones-23-de:3
 - https://odysee.com/@AmazingSports:c/el-chiringuito-de-jugones-viernes-22-de-mayo-2020-completo-hd720:d
