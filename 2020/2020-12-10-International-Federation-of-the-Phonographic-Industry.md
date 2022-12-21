@@ -13,6 +13,8 @@ We have learned that your service is making available, distributing and/or refer
 
 DUA LIPA - STUDIO 2054 (https://odysee.com/$/download/DUA-LIPA-STUDIO-2054-FULL-SHOW/42e6941926b01e6d85c46c9c6bc819d494488a57)
 
+Donny Hathaway 	Someday We'll All Be Free 	https://odysee.com/@AlexJonesChannel:c/Exclusive!-Ye-Releases-New-Song--Someday-We%27ll-All-Be-Free:3?r=BSr5bcxuohBgTQTNHZDoQnEWNuKh4Gw3
+
 
 (the “IFPI Represented Companies Sound Recording/s”).
 
