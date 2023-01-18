@@ -22,6 +22,23 @@ bwilliams@usawatchdog.com
 
 Videos to be Taken Down for Copyright Infringement:
 
+Videos to be Taken Down for Copyright Infringement:
+
+
+https://odysee.com/@Robert-Self:a0/WWIII-Has-Begun-Greg-Hunter-Interviews-Gerald-Celente:5
+
+https://odysee.com/@yabba:e/Nightmare-Fall-of-United-States-%E2%80%93-Martin-Armstrong-:0
+
+https://odysee.com/@ARGONAUT:d/fda-criminally-approved-bioweapon-as-safe-amp:e
+
+https://odysee.com/@EndYourSlavery:8/Catherine-Austin-Fitts--Changing-the-President-Won't-Matter--We-Have-a-Death-Cult-In-Charge:c
+
+https://odysee.com/@RMCB_arch:a/2022-4-mp4:a
+
+https://odysee.com/@WakeUpMirror:3/maghd:e
+
+https://odysee.com/@yabba:e/US-Government-in-Full-Scale-Implosion-Because-of-Corruption-%E2%80%93-Catherine-Austin-Fitts-:3
+
 https://odysee.com/@Steven:d/GregHunter:2
 
 https://odysee.com/@staycuriouskeepsmilin':b/greg-hunter-dr-pierre-kory:7
