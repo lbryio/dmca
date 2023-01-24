@@ -13,6 +13,24 @@ The information contained in this notice is correct, and I swear on my honor and
 
 Contents we want removed under copyright
 
+https://odysee.com/@kayifamilyads:7/Kurulus-Osman-Episode-113:8
+
+https://odysee.com/ko113-urdu_4:c
+
+https://odysee.com/ko113-urdu_3:c
+
+https://odysee.com/ko113-urdu_1:a
+
+https://odysee.com/ko113-urdu_2:7
+
+https://odysee.com/@arslanbeybk:7/Kurulu%C5%9F-Osman-106.-B%C3%B6l%C3%BCm:0
+
+https://odysee.com/@arslanbeybk:7/107:72
+
+https://odysee.com/@arslanbeybk:7/Kurulu%C5%9F-Osman-106.-B%C3%B6l%C3%BCm:0
+
+https://odysee.com/@farmanachanna:e/Kurulus-Osman-Episode-106-English-Subtitles---KayiFamilyTV:2
+
 https://odysee.com/@Techbee:5/Osman-EP100-ENG-Full-P2:a
 
 https://odysee.com/@Techbee:5/Osman-EP101-ENG-Full-P1:3
