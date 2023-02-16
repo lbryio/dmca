@@ -1,29 +1,78 @@
 Dear Odysee:
 
-
-
 Would you please take down the below illegally uploaded video URLs for Copyright Infringement that have been posted on Odysee.
 
-
-
 Thank you for your immediate attention to this matter as this costs our company money. We really appreciate it!!
-
-
 
 Betty Williams / Co-Owner
 
 USAWatchdog.com
 
-bwilliams@usawatchdog.com
-
-
-
-
-
 Videos to be Taken Down for Copyright Infringement:
 
-Videos to be Taken Down for Copyright Infringement:
 
+https://odysee.com/@ReligiareOriginel:d/Karen-Kingston---USAWatchDog-(VFR):a
+
+https://odysee.com/@r%C3%A9seauinfluence:3/Karen-Kingston---USAWatchDog-VFR-(1):a
+
+https://odysee.com/@christophevoisin.a:e/Karen-Kingston---USAWatchDog-VFR:2
+
+https://odysee.com/@daniel:5f/Karen-Kingston---USAWatchDog-VFR:c
+
+https://odysee.com/@vivreautrement:6/Karen-Kingston---USAWatchDog-VFR:9
+
+https://odysee.com/@TheCoiledDragon:4/InShot_20220327_125646891:7
+
+https://odysee.com/@thenewamericanvideo:7/DrBhakdiExplainsHowTheVaccineCausesBloodClotsandOtherDangers:8
+
+https://odysee.com/@SabineFaureSAMlle:a/Greg-HUNTER-et-Karen-KINGSTON--Sous-Titrage-VF:7
+
+https://odysee.com/@Robert-Self:a0/Dr-Elizabeth-Eads-Millions-Will-Get-AIDS-From-Vax-by-Fall:d
+
+https://odysee.com/@XjVale:a/Bhakdi-destr-hk:c
+
+https://odysee.com/@CameraMemes:7/700,000,000-will-die-from-c19-gene-therapy-David-Martin-Interview-USA-Watchdog:2
+
+https://odysee.com/@Follower_of_Christ777:7/February-7---NWO---Dr.-Eads-says-at-least-1-BILLION-DEAD-or-disabled-from-Covid-19-bioweapon-vaccines!-February-4:e
+
+https://odysee.com/@PandemicParallaxView:6/Bhakdi-GeneBasedVaxx_QuoVadis:3
+
+https://odysee.com/@Patriots:2/Radical-Drought-Caused-by-Military-Weather-Weapons-%E2%80%93-Dane-Wigington-_-Greg-Hunter%E2%80%99s-USAWatchdog:3
+
+https://odysee.com/@RunningOverTheSameOldGround:6/COVID-19-Vaccine-Destroys-Hearts-Brains-of-Billions-of-People:6
+
+https://odysee.com/@ReligiareOriginel:d/Karen-Kingston---USAWatchDog-(VFR):a
+
+https://odysee.com/@ReligiareOriginel:d/Karen-Kingston---USAWatchDog-(VFR):a
+
+https://odysee.com/@Yeshuas.Child:5/Greg:31
+
+https://odysee.com/@D%C3%A9pot%C3%A9BenaLakay:7/larme-vaccinale:d
+
+https://odysee.com/@ReligiareOriginel:d/Karen-Kingston---USAWatchDog-(VFR):a
+
+https://odysee.com/@ReligiareOriginel:d/Karen-Kingston---USAWatchDog-(VFR):a
+
+https://odysee.com/@ReligiareOriginel:d/Karen-Kingston---USAWatchDog-(VFR):a
+this Karen Kingston interview is up on his channel, innumerable times! not sure why...
+
+https://odysee.com/@SixthSense-Truth-Search-Labs:0/Millions-Will-Get-AIDS-From-Vax-by-Fall-%E2%80%93-Dr-Elizabeth-Eads:d
+
+https://odysee.com/@ReligiareOriginel:d/Karen-Kingston---USAWatchDog-(VFR):a
+
+https://odysee.com/@vivreautrement:6/Karen-Kingston---USAWatchDog-VFR:9
+
+https://odysee.com/@ReligiareOriginel:d/Karen-Kingston---USAWatchDog-(VFR):a
+
+https://odysee.com/@ReligiareOriginel:d/Karen-Kingston---USAWatchDog-(VFR):a
+
+https://odysee.com/@christophevoisin.a:e/Karen-Kingston---USAWatchDog-VFR:2
+
+https://odysee.com/@christophevoisin.a:e/Karen-Kingston---USAWatchDog-VFR:2
+
+https://odysee.com/@ReligiareOriginel:d/Karen-Kingston---USAWatchDog-(VFR):a
+
+https://odysee.com/@D%C3%A9pot%C3%A9BenaLakay:7/Karen-Kingston---USAWatchDog-VFR:be
 
 https://odysee.com/@Robert-Self:a0/WWIII-Has-Begun-Greg-Hunter-Interviews-Gerald-Celente:5
 
