@@ -9,6 +9,15 @@ We have noticed that your website is displaying, promoting and/or offering audio
 TOTALMENTE DEMAIS (2020)  
 BIG BROTHER BRASIL (2020)  
 
+http://odysee.com/@Charles:a21/Rain-Man---1988:b
+
+http://odysee.com/@Eleventy8:5/spectre-(2015)-bond-meets-lucia-sciarra:5
+
+http://odysee.com/@FilmLBRY:6/CasinoRoyale:1
+
+http://odysee.com/@SOLOPATI23:b/Ver-Terminator-(1984)-Online:3
+
+Infringing Webpage:
 http://odysee.com/@6shooter:5/The.Ballad.of.Lefty.Brown:d
 
 http://odysee.com/@beck:57/The_WITCH:f
