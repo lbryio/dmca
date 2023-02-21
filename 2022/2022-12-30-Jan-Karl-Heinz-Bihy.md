@@ -4,6 +4,35 @@ mein Name ist Jan Karl-Heinz Bihy und ich bin der Produzent und Autor von Yoice.
 
 Mehrere Videos wurde ohne Erlaubnis auf Ihre Server kopiert. Die Original Video, an dem wir die exklusiven Urheberrechte besitzen, finden Sie unter:
 
+Die nicht autorisierte und verletzende Kopien finden Sie unter folgenden URLs:
+
+
+https://odysee.com/@DJBuddahLova:b/Eric-Dubay--Die-Flache-Erde-Verschw%C3%B6rung-(komplett,-deutsch):b
+
+
+https://odysee.com/@ERWACHEN:a/Die-flache-Erde-Verschw%C3%B6rung-(H%C3%B6rbuch)-von-Eric-Dubay:f
+
+
+https://odysee.com/@stracheck%C2%B4s:9/Ericdubai_flaterth:2
+
+
+Des weiteren, sind auf dem Kanal der letztgenannten noch folgenden illegalen Raubkopie; (Er hat besonders viel gestohlen!)
+
+
+https://odysee.com/@stracheck%C2%B4s:9/ist-die-Erde-wirklich-rund_:4
+
+
+https://odysee.com/@stracheck%C2%B4s:9/Die-flache-Erde-ist-die-wichtigste-Wahrheit:0
+
+
+https://odysee.com/@stracheck%C2%B4s:9/Du-bist-nur-Teil-einer-gro%C3%9Fen-Fernsehshow-ein-Gef%C3%A4ngnis-f%C3%BCr-deinen-Verstand:7
+
+
+https://odysee.com/@stracheck%C2%B4s:9/M%C3%B6chtest_Du_ein_Geheimnis_erfahren:8
+
+
+https://odysee.com/@stracheck%C2%B4s:9/--2k-Beweise-EARTH-is-flat!--:b
+
 https://yoice.net/medien/gott_babylon.mp4 (Kniet nieder vor eurem Gott Babylon (Satanismus ist eine Religion für die Elite) | yoice.net)
 
 Die nicht autorisierte und verletzende Kopie finden Sie unter:
