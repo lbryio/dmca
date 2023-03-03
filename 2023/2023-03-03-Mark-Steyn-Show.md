@@ -4,4 +4,5 @@ Please also be advised that law requires you, as a service provider, to remove o
 
 I am providing this notice in good faith and with the reasonable belief that rights my company owns are being infringed. Under penalty of perjury I certify that the information contained in the notification is both true and accurate, and I have the authority to act on behalf of the owner of the copyright(s) involved.
 A website that your company hosts (according to WHOIS information) is infringing on at least one copyright owned by my company:
+
 https://odysee.com/@MarkSteynShow:a#a2e037c33bae355450dcc3ce7f0db27676bf8c28
