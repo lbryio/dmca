@@ -7,7 +7,18 @@ We write on behalf of Globo Comunicação e Participações S/A, Globo Internati
   
 We have noticed that your website is displaying, promoting and/or offering audiovisual (A/V) content from Globo's TV shows:  
 TOTALMENTE DEMAIS (2020)  
-BIG BROTHER BRASIL (2020)  
+BIG BROTHER BRASIL (2020) 
+
+Item/Material:
+http://odysee.com/@ermasman:8/Agente-007-contra-el-Dr.-No-(1962):8
+
+http://odysee.com/@ermasman:8/James-Bond-contra-Goldfinger-(1964):2
+
+http://odysee.com/@FilmeNerd:6/robocop-1987-14-curiosidades:6
+
+http://odysee.com/@PJDDIVERSOS:3/robocop-1987:2
+
+http://odysee.com/Stargate-SG-1,-Temporada-01,-Capitulo-01-02_22,-Hijos-de-los-Dioses-(Parte-1-2).-(1997):9
 
 http://odysee.com/@milboys:6/EX-MACHINA-CZ-DAB-2015:e
 
