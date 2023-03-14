@@ -8,14 +8,14 @@ The URLs below will allow you to read them.
 URLs below will allow you to read them.
 - https://odysee.com/@Lavéritépartagée:4
 - https://odysee.com/@wag-up2.21:b
-- https://odvsee.com/@FlowerPower2:e
+- https://odysee.com/@FlowerPower2:e
 - https://odysee.com/@Lemoutonenrage:9
 - https://odysee.com/@les.diffuseurs.de.verites:f
 - https://odysee.com/@Stello:b
 - https://odysee.com/@HermesTrismegiste:f
 - https://odysee.com/@RienDeNouveauSousLeSoleil:d
 - https://odysee.com/@LeLoup:3
-- https://odvsee.com/@scoukyx:4
+- https://odysee.com/@scoukyx:4
 - https://odysee.com/@amana.millenia:5
 - https://odysee.com/@les.diffuseurs.de.verites:f
 - https://odysee.com/@denis.orloff:5
