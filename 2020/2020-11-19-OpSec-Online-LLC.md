@@ -7,7 +7,11 @@ We write on behalf of Globo Comunicação e Participações S/A, Globo Internati
   
 We have noticed that your website is displaying, promoting and/or offering audiovisual (A/V) content from Globo's TV shows:  
 TOTALMENTE DEMAIS (2020)  
-BIG BROTHER BRASIL (2020) 
+BIG BROTHER BRASIL (2020)
+
+http://odysee.com/@WarsmithAlaric:2/TheExodite02:7
+
+http://odysee.com/@WarsmithAlaric:2/TheExodite03:3
 
 Item/Material:
 http://odysee.com/@ermasman:8/Agente-007-contra-el-Dr.-No-(1962):8
