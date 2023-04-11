@@ -5,6 +5,18 @@ The copyright of the film below belongs to us and we have not licensed anyone to
 
 ------
 
+URL:
+https://odysee.com/@ComFigurado:2/Katekyo-Hitman-Reborn-Opening-4K60fps:0
+[1]
+https://odysee.com/@ComFigurado:2/Katekyo-Hitman-Reborn-Opening-V2-4K60fps:d
+[2]
+
+https://odysee.com/@ComFigurado:2/School-Rumble-Opening-Remastered-4K60fps:8
+[3]
+
+https://odysee.com/@LexaAnd!:1/Mushi:6
+
+
 https://odysee.com/@NHKanime:f/
 
 URL:
