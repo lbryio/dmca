@@ -6,6 +6,9 @@ Dear Sirs,
 We write on behalf of Globo Comunicação e Participações S/A, Globo International Company Ltd and Globosat Programadora Ltda., both companies hereinafter referred to as “Globo” which owns and/or controls worldwide broadcast rights for their television channels, which include but are not limited to TV Globo, TV Globo Internacional and Big Brother Brasil (BBB) Pay-per-view.  
   
 We have noticed that your website is displaying, promoting and/or offering audiovisual (A/V) content from Globo's TV shows: 
+
+https://odysee.com/@Counterpoints:5/reborn-in-blood-angels-of-death-episode:9
+
 https://odysee.com/@JungleWarrior:a/2000-Mules-(2022):be
 
 http://odysee.com/@pidetupeli:2/licorish-pizza:5
