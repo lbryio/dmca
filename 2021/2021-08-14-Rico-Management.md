@@ -11,6 +11,41 @@ Authorized example of work: https://www.starsetonline.com/
 Authorization From Copyright Holder To Request Removal: Provided Upon Request
 
 I believe that the following materials are infringing:
+- https://odysee.com/@951444245%3Ac/%E3%80%902023-Coachella%E3%80%91%E8%90%BD%E6%97%A5%E9%A3%9B%E8%BB%8A-Sunset-Rollercoaster%3A7
+- https://odysee.com/BP-Coachella%3A9
+- https://odysee.com/@Ginoveners%3A6/BAD-BUNNY%3A6
+- https://odysee.com/@Ginoveners%3A6/badbunnycoachella%3Af
+- https://odysee.com/@Ginoveners%3A6/badbunnycoachella%3Af?fbclid=IwAR1f7CKY8eaUvKVtNcjKirx9mVENwlqv9JqlgfGG3_qbIXFq1C5YQ3pTZ_Q
+- https://odysee.com/@Ginoveners%3A6/blink%3Ace?fbclid=IwAR2oZCPP521QGLYWTLWNd9_xe1Hm3HfPGBuQpfKPLjDYu36ANRQ1UaCtPmg
+- https://odysee.com/@Ginoveners%3A6/BLINK-WEEKEND2%3A6
+- https://odysee.com/@Ginoveners%3A6/SGLewis%3Ab
+- https://odysee.com/@Ginoveners%3A6/thechemicalbrothers2023%3A7
+- https://odysee.com/@hehehemant%3A3/16042023_095446%3Ac
+- https://odysee.com/@NDR%3A1/2manydjs%3A6
+- https://odysee.com/@NDR%3A1/Adam-Beyer%3A7
+- https://odysee.com/@NDR%3A1/Ali-Sethi%3Ad
+- https://odysee.com/@NDR%3A1/blink-182%3A1
+- https://odysee.com/@NDR%3A1/Camelphat%3A1
+- https://odysee.com/@NDR%3A1/Cannons%3A5
+- https://odysee.com/@NDR%3A1/Cassian%3A1
+- https://odysee.com/@NDR%3A1/Chromeo%3Ad
+- https://odysee.com/@NDR%3A1/Colyn%3Ac
+- https://odysee.com/@NDR%3A1/DJ-Tennis-+-Carlita%3A1
+- https://odysee.com/@NDR%3A1/Dombresky%3A3
+- https://odysee.com/@NDR%3A1/Domi---JD-Beck%3A4
+- https://odysee.com/@NDR%3A1/Donavan%27s-Yard%3A6
+- https://odysee.com/@NDR%3A1/DRAMA%3Af2
+- https://odysee.com/@NDR%3A1/Four-Tet-x-Fred-again..-x-Skrillex%3Ab
+- https://odysee.com/@NDR%3A1/Hot-Since-82%3A4
+- https://odysee.com/@NDR%3A1/Joy-Crookes%3Af
+- https://odysee.com/@NDR%3A1/Marc-Rebillet%3Ac
+- https://odysee.com/@NDR%3A1/Romy%3A06
+- https://odysee.com/@NDR%3A1/The-Comet-Is-Coming%3A3
+- https://odysee.com/@NDR%3A1/TSHA%3A6
+- https://odysee.com/@Tils.Gee%3A7/blackpink-coachella-2023%3Ab
+- https://odysee.com/@Tils.Gee%3A7/calvin-harris-coachella-2023%3A9
+- https://odysee.com/@Tils.Gee%3A7/porter-robinson-coachella-2023%3A5
+- https://odysee.com/@yGuii%3A6/Yungblud---Live-at-Coachella-2023-%28Show-2%29%3A0
 - https://odysee.com/@AVisionDarkly%3Ab/Toolthepot%3Aa
 - https://odysee.com/@CrypticCrytic:9/What-Is-A-Woman-Presentation:3
 - https://odysee.com/@Hemeroteca:f/%C2%BFQU%C3%89-ES-UNA-MUJER---DOCUMENTAL-DE-MATT-WALSH---SUBTITULADO-AL-ESPA%C3%91OL--:a
