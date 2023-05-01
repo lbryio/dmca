@@ -7,6 +7,8 @@ We write on behalf of Globo Comunicação e Participações S/A, Globo Internati
   
 We have noticed that your website is displaying, promoting and/or offering audiovisual (A/V) content from Globo's TV shows: 
 
+http://odysee.com/@EuKatie:f/VODTOF:d
+
 https://odysee.com/@Counterpoints:5/reborn-in-blood-angels-of-death-episode:9
 
 https://odysee.com/@JungleWarrior:a/2000-Mules-(2022):be
