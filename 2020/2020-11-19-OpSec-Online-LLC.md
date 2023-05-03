@@ -6,6 +6,15 @@ Dear Sirs,
 We write on behalf of Globo Comunicação e Participações S/A, Globo International Company Ltd and Globosat Programadora Ltda., both companies hereinafter referred to as “Globo” which owns and/or controls worldwide broadcast rights for their television channels, which include but are not limited to TV Globo, TV Globo Internacional and Big Brother Brasil (BBB) Pay-per-view.  
   
 We have noticed that your website is displaying, promoting and/or offering audiovisual (A/V) content from Globo's TV shows: 
+http://odysee.com/@Luykkar:2/charlie-brown-parte-2:3
+
+http://odysee.com/@pelochotv:4/Luck-(2022)--BluRay-Rip--AC3-5.1-Castellano--www.nucleohd.com-:b
+
+http://odysee.com/Amazing.Stories.2020.S01e01.480P.X264-Msd-Eztv--1:6
+
+http://odysee.com/Amazing.Stories.2020.S01e04.720P.Web.H264-Xlf-Eztv--1:3
+
+http://odysee.com/Amazing.Stories.2020.S01e05:9
 
 http://odysee.com/@EuKatie:f/VODTOF:d
 
