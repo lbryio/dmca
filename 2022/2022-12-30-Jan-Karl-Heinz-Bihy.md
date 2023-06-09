@@ -9,6 +9,104 @@ Die nicht autorisierte und verletzende Kopien finden Sie unter folgenden URLs:
 
 Die nicht autorisierten und verletzenden Kopien finden Sie unter:
 
+https://odysee.com/@lincoln-project-djsbsw:d/VID_20230423_133429_470:a
+
+
+https://odysee.com/@BulletproofWarlord:6/Eine-Warnung-an-ALLE---Es-ist-Krieg_-_Sklaven-der-Schuld_:9
+
+
+https://odysee.com/@AllesVerschw%C3%B6rungAktuellesDiverses:c/Eine-Warnung-an-ALLE---Es-ist-Krieg-Sklaven-der-Schuld:c
+
+
+https://odysee.com/@vero.siebert:2/Eine-Warnung-an-ALLE---Es-ist-Krieg!-(Sklaven-der-Schuld):7
+
+
+https://odysee.com/@ErwachenMitMarcus:c/Eine-Warnung-an-ALLE---Es-ist-Krieg!-(Sklaven-der-Schuld):4
+
+
+https://odysee.com/@backup-videos:8/Eine-Warnung-an-ALLE---Es-ist-Krieg!-(Sklaven-der-Schuld):e
+
+
+https://odysee.com/@WakeUp:7b/Sklaven-der-Schuld:7
+
+
+https://odysee.com/@germanearminus:6/eine-warnung-an-alle-es-ist-krieg:f
+
+
+https://yoice.net/medien/Menschenhaltung.mp4 Die Art der Menschenhaltung ist an ihrem Ende angelangt
+
+
+Anmerkung; Auf dem Kanal "NICHTS IST, WIE ES SCHEINT" haben wir 20-30 vielleicht auch mehr Filme entfernen lassen und er lädt illegale Raubkopien einfach erneut hoch, wie kann man den Einhalt gebieten?
+
+
+Die nicht autorisierten und verletzenden Kopien finden Sie unter: (Diese Version hatten wir bereits entfernen lassen - https://odysee.com/@ERWACHEN:a/-8580907996682459596:4 )
+
+
+Dafür hat er den gleichen Film einfach erneut hochgeladen https://odysee.com/@ERWACHEN:a/-3186328632937119407:a
+
+
+Weitere illegale Raubkopien auf dem Kanal;
+
+
+https://odysee.com/@ERWACHEN:a/telegram-cloud-document-2-5190730910818907999:9
+
+
+https://odysee.com/@ERWACHEN:a/2355455544239630972:4
+
+
+https://odysee.com/@ERWACHEN:a/telegram-cloud-document-2-5386395851159508866:9
+
+
+Weiter illegalen Raubkopien sind;
+
+
+https://odysee.com/@MaxWende:f/HELLSTORM---Die-Vergewaltigung-Deutschlands---deutsche-Bearbeitung-YOICE.NET:4?lid=cd16e5a1-42fa-40bd-8b55-5288650dc372
+
+
+https://odysee.com/@DirtyWorld:5/wk:5
+
+
+https://odysee.com/@SchwarzWei%C3%9F_Belgrad:8/eine-warnung-an-alle-es-ist-krieg!:c
+
+
+https://odysee.com/@RealEyesSee:f/Doc-Brown_-Ich-bin-zur%C3%BCck-aus-der-Zukunft,-um-euch-ernsthaft-zu-warnen!:7?lid=cd16e5a1-42fa-40bd-8b55-5288650dc372
+
+
+https://odysee.com/@Observer2020:1/die-gesellschaft-sieht-nichts-weil-sie-in-einem-zustand-tiefer-hypnose-gehalten-wird:d?lid=cd16e5a1-42fa-40bd-8b55-5288650dc372
+
+
+https://odysee.com/@RealEyesSee:f/NASA-Mond(f)l%C3%BCge,-ist-das-Wissenschaft-und-Technologie-oder-(T)Raumfahrt-und-Illusion_:6?lid=cd16e5a1-42fa-40bd-8b55-5288650dc372
+
+
+https://odysee.com/@camaeleon:a/Wie_Hollywood_PsyOps_dir_Angst_einjagen_Atombomben_gibt_es_nicht:e?lid=cd16e5a1-42fa-40bd-8b55-5288650dc372
+
+
+https://odysee.com/@FlacheErdeRealit%C3%A4tBackup:b/video_2021-12-07_07-49-47:2?lid=cd16e5a1-42fa-40bd-8b55-5288650dc372
+
+
+https://odysee.com/@ursachenforschung-gtz:9/Die-L%C3%BCge-der-Erdkr%C3%BCmmung-(Laser-Experiment):e
+
+
+https://odysee.com/@ursachenforschung-gtz:9/Rom-regiert-noch-heute-!!:c
+
+
+https://odysee.com/@ursachenforschung-gtz:9/10000000_296638289347772_6450446705525859532_n:3
+
+
+https://odysee.com/@ursachenforschung-gtz:9/Die-Psychologie-der-Manipulation-(Edward-Bernays-_-%E2%80%9EPropaganda%E2%80%9C):7
+
+
+https://odysee.com/@ursachenforschung-gtz:9/Im_Gedenken_an_Mr_Spock_Die_Eiszeithysterie_der_60_70er_Jahre:e
+
+
+https://odysee.com/@transformation:f/Ex-NASA-Mitarbeiter,-Dave-Murphy:4?lid=cd16e5a1-42fa-40bd-8b55-5288650dc372
+
+
+https://odysee.com/@verstecktewahrheit:9/10000000_695899292020434_3014186142468471376_n:c
+
+
+https://odysee.com/@AllesVerschw%C3%B6rungHistorie:e/Wenn-sich-Astronauten-an-Bord-der-ISS-befinden,--warum-werden-die-Bilder-dann-inszeniert_:4
+
 https://odysee.com/@ERWACHEN:a/-8580907996682459596:4
 
 
