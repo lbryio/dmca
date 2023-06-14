@@ -3,6 +3,12 @@ A video was copied onto your servers without permission. The original video, to 
 https://www.epochtimes.fr/la-meilleure-resistance-au-totalitarisme-cest-de-nourrir-lame-humaine-ariane-bilheran-2338016.html
 
 The unauthorized and infringing copy can be found at:
+- https://odysee.com/@samo42:e/%C2%AB-2-facteurs-permettent-les-destructions-massives-des-populations-%C2%BB-%E2%80%93-Ariane-Bilheran:9
+- https://odysee.com/@polchen:8/%C2%AB-Ceux-qui-collaborent-au-syst%C3%A8me-totalitaire-transgressent-2-interdits-fondamentaux-%C2%BB:6
+- https://odysee.com/@gaston.labaffe:e/la-persecution-va-s-etendre-a-d-autres-categories-de-la-population%E2%80%93-ariane-bilheran:6
+- https://odysee.com/@lesmoutonsnoirs:1/%C2%AB-La-pers%C3%A9cution-va-s%E2%80%99%C3%A9tendre-%C3%A0-d%E2%80%99autres-cat%C3%A9gories-de-la-population-%C2%BB-%E2%80%93-Ariane-Bilheran:cef
+- https://odysee.com/@ledroitmoral:a/yt5s.com-%C2%AB-La-pers%C3%A9cution-va-s%E2%80%99%C3%A9tendre-%C3%A0-d%E2%80%99autres-cat%C3%A9gories-de-la-population-%C2%BB-%E2%80%93-Ariane-Bilheran(720p):3
+- https://odysee.com/@ArcDemos:6/%C2%AB-La-pers%C3%A9cution-va-s%E2%80%99%C3%A9tendre-%C3%A0-d%E2%80%99autres-cat%C3%A9gories-de-la-population-%C2%BB-%E2%80%93-Ariane-Bilheran-(1080p_30fps_H264-128kbit_AAC):8
 - https://odysee.com/@LiBERTY_VOICE:b/%C2%AB-2-facteurs-permettent-les-destructions-massives-des-populations-%C2%BB-%E2%80%93-Ariane-Bilheran:b
 - https://odysee.com/@christophevoisin.a:e/arianebilheran:d03
 - https://odysee.com/@GiletteJaune:8/Ariane-Bilheran-%C2%AB-Ceux-qui-collaborent-au-syst%C3%A8me-totalitaire-transgressent-2-interdits-fondamentaux-%C2%BBEpoch-Times-France-7-06-2023:1
