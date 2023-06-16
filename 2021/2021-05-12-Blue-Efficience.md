@@ -44,7 +44,20 @@ Hereunder is provided the list of URLs giving access to the copyrighted
 work.
 Each of these URLs loads a web page that allows to launch the download of
 the copyrighted work.
-  
+- https://odysee.com/@anthodurire:c/koh-lanta-2023-le-feu-sacr%C3%A9-r%C3%A9sum%C3%A9-14:f
+- https://odysee.com/@anthodurire:c/koh-lanta-2023-le-feu-sacr%C3%A9-r%C3%A9sum%C3%A9-13:1
+- https://odysee.com/@anthodurire:c/koh-lanta-2023-le-feu-sacr%C3%A9-r%C3%A9sum%C3%A9-3:e
+- https://odysee.com/@anthodurire:c/koh-lanta-2023-le-feu-sacr%C3%A9-r%C3%A9sum%C3%A9-2:d
+- https://odysee.com/@anthodurire:c/koh-lanta-2023-le-feu-sacr%C3%A9-r%C3%A9sum%C3%A9-10:6
+- https://odysee.com/@anthodurire:c/koh-lanta-2023-le-feu-sacr%C3%A9-r%C3%A9sum%C3%A9:6
+- https://odysee.com/@anthodurire:c/koh-lanta-2023-le-feu-sacr%C3%A9-r%C3%A9sum%C3%A9-9:8
+- https://odysee.com/@anthodurire:c/koh-lanta-2023-le-feu-sacr%C3%A9-r%C3%A9sum%C3%A9-8:6
+- https://odysee.com/@anthodurire:c/koh-lanta-2023-le-feu-sacr%C3%A9-r%C3%A9sum%C3%A9-6:9
+- https://odysee.com/@anthodurire:c/koh-lanta-2023-le-feu-sacr%C3%A9-r%C3%A9sum%C3%A9-4:6
+- https://odysee.com/@anthodurire:c/koh-lanta-2023-le-feu-sacr%C3%A9-r%C3%A9sum%C3%A9-12:0
+- https://odysee.com/@anthodurire:c/koh-lanta-2023-le-feu-sacr%C3%A9-r%C3%A9sum%C3%A9-11:a
+- https://odysee.com/@anthodurire:c/koh-lanta-2023-le-feu-sacr%C3%A9-r%C3%A9sum%C3%A9-7:4
+- https://odysee.com/@anthodurire:c/koh-lanta-2023-le-feu-sacr%C3%A9-r%C3%A9sum%C3%A9-5:f
 - https://odysee.com/9852654161531641:4
 - https://odysee.com/91651645514616:b
 - https://odysee.com/9516514143131:d  
