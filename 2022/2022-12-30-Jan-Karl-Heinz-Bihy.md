@@ -9,6 +9,38 @@ Die nicht autorisierte und verletzende Kopien finden Sie unter folgenden URLs:
 
 Die nicht autorisierten und verletzenden Kopien finden Sie unter:
 
+https://odysee.com/@ERWACHEN:a/-1729192545831206412:a
+
+
+Weitere Illegale Raubkopien:
+
+
+https://odysee.com/@ERWACHEN:a/telegram-cloud-document-2-5206266550557880024:3
+
+
+https://odysee.com/@ERWACHEN:a/-2515126172570748240:2
+
+
+Anmerkung; Auf dem Kanal "NICHTS IST, WIE ES SCHEINT" haben wir 20-30 vielleicht auch mehr Filme entfernen lassen und er lädt illegale Raubkopien einfach erneut hoch, wie kann man den Einhalt gebieten?
+
+
+Weiter illegalen Raubkopien:
+
+
+https://odysee.com/@Querulinger:8/gel-schtes-infowars-interview-mit-eddie:7?lid=cd16e5a1-42fa-40bd-8b55-5288650dc372
+
+
+https://odysee.com/@vero.siebert:2/George-Orwell---Letzte-Warnung-(Rausch-der-Macht):6?lid=cd16e5a1-42fa-40bd-8b55-5288650dc372
+
+
+https://odysee.com/@Devilmaycry:a/Atombombenschwindel-Gesch%C3%A4ftsmodel-Angst:0?lid=cd16e5a1-42fa-40bd-8b55-5288650dc372
+
+
+https://odysee.com/@ZensurNEINdanke:d/satire-tanzwettbewerb-um-die:f?lid=cd16e5a1-42fa-40bd-8b55-5288650dc372
+
+
+https://odysee.com/@weiszpflog:5/Du-bist-nur-Teil-einer-gro%C3%9Fen-Fernsehshow:2?lid=cd16e5a1-42fa-40bd-8b55-5288650dc372
+
 https://odysee.com/@lincoln-project-djsbsw:d/VID_20230423_133429_470:a
 
 
