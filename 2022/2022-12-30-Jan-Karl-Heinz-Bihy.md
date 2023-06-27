@@ -6,6 +6,7 @@ Mehrere Videos wurde ohne Erlaubnis auf Ihre Server kopiert. Die Original Video,
 
 Die nicht autorisierte und verletzende Kopien finden Sie unter folgenden URLs:
 
+https://odysee.com/@ERWACHEN:a/%EF%BC%82Das-Ding-ist-flach!%EF%BC%82-Neil-DeGrasse-Tyson:a
 
 Die nicht autorisierten und verletzenden Kopien finden Sie unter:
 
