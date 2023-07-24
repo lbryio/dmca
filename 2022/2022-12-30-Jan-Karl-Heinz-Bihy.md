@@ -6,6 +6,18 @@ Mehrere Videos wurde ohne Erlaubnis auf Ihre Server kopiert. Die Original Video,
 
 Die nicht autorisierte und verletzende Kopien finden Sie unter folgenden URLs:
 
+https://odysee.com/@Gerdon:6/50-Jahe-Mondlandung-Sternstunden-der-(T)Raumfahrt:c
+
+https://odysee.com/@Gerdon:6/Ist-die-Erde-wirklich-Rund-:d
+
+https://odysee.com/@Gerdon:6/Flache-Erde-und-die-Antarktis-was-ist-richtig:5
+
+https://odysee.com/@Gerdon:6/Die-Sonne-Der-Mond-Der-Urknall:9
+
+https://odysee.com/@Gerdon:6/Die-Flache-Erde-Verschw%C3%B6rung:8
+
+https://odysee.com/@Gerdon:6/21-Fragen-zur-flachen-Erde:9
+
 https://odysee.com/@ERWACHEN:a/%EF%BC%82Das-Ding-ist-flach!%EF%BC%82-Neil-DeGrasse-Tyson:a
 
 Die nicht autorisierten und verletzenden Kopien finden Sie unter:
