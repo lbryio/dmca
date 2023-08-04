@@ -6,6 +6,30 @@ Cancer Cure Deception:
 
 The unauthorized and infringing copy can be found at:
 
+https://odysee.com/@Steven:d/Remedy:98
+
+https://odysee.com/@greatawakening:c/remedy:31
+
+https://odysee.com/@sqapsy369:8/1689107622044_1689107622056:7
+
+https://odysee.com/@sqapsy369:8/1689480769662_1689480769662:3
+
+https://odysee.com/@MAGAlionHAT:e/REMEDY_The-Truth-About-Vaccines_Episode-8:d
+
+https://odysee.com/@MAGAlionHAT:e/REMEDY_The-Truth-About-Vaccines_Episode-7:9
+
+https://odysee.com/@MAGAlionHAT:e/REMEDY_The-Truth-About-Vaccines_Episode-6:f
+
+https://odysee.com/@MAGAlionHAT:e/REMEDY_The-Truth-About-Vaccines_Episode-5:6
+
+https://odysee.com/@MAGAlionHAT:e/REMEDY_The-Truth-About-Vaccines_Episode-4:5
+
+https://odysee.com/@MAGAlionHAT:e/REMEDY-_The-Truth-About-Vaccines_Episode-3:6
+
+https://odysee.com/@MAGAlionHAT:e/REMEDY_The-Truth-About-Vaccines_Episode-2:7
+
+https://odysee.com/@MAGAlionHAT:e/REMEDY_The-Truth-About-Vaccines_Episode-1:7
+
 https://odysee.com/@MOUSE4:3/Propaganda-Exposed--Uncensored--Episode-1--25-11-2022:4
 
 https://odysee.com/@I-Rabbi-T:3/Propaganda-Exposed!-!---Episode-3:b
