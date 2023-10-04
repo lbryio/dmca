@@ -6,6 +6,32 @@ Cancer Cure Deception:
 
 The unauthorized and infringing copy can be found at:
 
+https://odysee.com/@CuriousGerman:9/TruthAboutCancerE01_09:0?lid=8c70791712ddcde3bcb0085261a754e190aa6779
+https://odysee.com/@CuriousGerman:9/TruthAboutCancer_E02_09:b?lid=8c70791712ddcde3bcb0085261a754e190aa6779
+https://odysee.com/@CuriousGerman:9/TruthAboutCancer_E03_09:6?lid=8c70791712ddcde3bcb0085261a754e190aa6779
+https://odysee.com/@CuriousGerman:9/TruthAboutCancer_E04_09:2?lid=8c70791712ddcde3bcb0085261a754e190aa6779
+https://odysee.com/@CuriousGerman:9/TruthAboutCancer-E05_09:7?lid=8c70791712ddcde3bcb0085261a754e190aa6779
+https://odysee.com/@CuriousGerman:9/TruthAboutCancer_E06_09:9?lid=8c70791712ddcde3bcb0085261a754e190aa6779
+https://odysee.com/@CuriousGerman:9/TruthAboutCancer_E07_09:4?lid=8c70791712ddcde3bcb0085261a754e190aa6779
+https://odysee.com/@CuriousGerman:9/TruthAboutCancer_E08_09:0?lid=8c70791712ddcde3bcb0085261a754e190aa6779
+https://odysee.com/@CuriousGerman:9/TruthAboutCancer_E09_09:5?lid=8c70791712ddcde3bcb0085261a754e190aa6779
+- https://odysee.com/@glenli:a/The-Truth-About-Cancer---A-Global-Quest---E0109-The-True-History-of-Chemotherapy---The-Pharmaceutical-Monopoly:e
+- https://odysee.com/@glenli:a/The-Truth-About-Cancer---A-Global-Quest---E0909---Cancer-Conquerors---Their-Powerful-Stories-of-Victory:8
+- https://odysee.com/@glenli:a/The-Truth-About-Cancer---A-Global-Quest---E0809---Cannabis,-Nature's-Epigenetic-Switches,-Peptides---Healing-with-Micronutrient-Therapy:2
+- https://odysee.com/@glenli:a/The-Truth-About-Cancer---A-Global-Quest---E0609---The-NOCEBO-Effect,-Healing-Vaccines,-Advanced-Detoxing---Going-Inside-A-German-Cancer-Clinic:c
+- https://odysee.com/@glenli:a/The-Truth-About-Cancer---A-Global-Quest---E0309-Cancer-Killing-Viruses,-Cancer-Stem-Cells,-GMOs,-Juicing---Eating-the-Rainbow:2
+- https://odysee.com/@glenli:a/The-Truth-About-Cancer---A-Global-Quest---Episode-0209---Cancer-Facts-and-Fictions,-Breast-Cancer,-Hormones,-Skin-Cancer---Essential-Oils:a
+- https://odysee.com/@glenli:a/The-Truth-About-Cancer,-A-Global-Quest---All-Episodes:8
+- https://odysee.com/@HiddenHealth:f/The-Truth-About-Cancer-A-Global-Quest-Episode-1-he-True-History-of-Chemo---The-Pharmaceutical-Monopoly-(1):5
+- https://odysee.com/@HiddenHealth:f/The-Truth-About-Cancer-A-Global-Quest-Episode-2-Cancer-Facts---Fiction,-Breast---Skin-Cancer,-Hormones,---Essential-Oils-(1):c
+- https://odysee.com/@HiddenHealth:f/The-Truth-About-Cancer-A-Global-Quest-Episode-3-Cancer-Killing-Viruses,-Cancer-Stem-Cells,-GMOs,-and-Juicing-(1):d
+- https://odysee.com/@HiddenHealth:f/The-Truth-About-Cancer-A-Global-Quest-Episode-4-Excitotoxins---Cancer,-Nature%E2%80%99s-Pharmacy,---Sound---Light-Therapies-(1):1
+- https://odysee.com/@HiddenHealth:f/The-Truth-About-Cancer-A-Global-Quest-Episode-5-Cancer's-Blind-Spots,-Toxic-Vaccines,-Homeopathy---Emotions-(1):b
+- https://odysee.com/@HiddenHealth:f/The-Truth-About-Cancer-A-Global-Quest-Episode-6-Nocebo-Effect,-Healing-Vaccines,-Adv.-Detoxing---Visit-A-German-Cancer-Clinic-(1):a
+- https://odysee.com/@HiddenHealth:f/The-Truth-About-Cancer-A-Global-Quest-Episode-7-Heal-Cancer-with-Clean-Electricity,-Unique-Water,-Natural-Sunlight---Superfoods-(1):e
+- https://odysee.com/@HiddenHealth:f/The-Truth-About-Cancer-A-Global-Quest-Episode-8-Cannabis,-Nature%E2%80%99s-Epigenetic-Switches,-Peptides---Micronutrient-Therapy-(1):7
+- https://odysee.com/@HiddenHealth:f/The-Truth-About-Cancer-A-Global-Quest-Episode-9-Cancer-Conquerors-and-their-Powerful-Stories-of-Victory-(1):6
+
 https://odysee.com/@Steven:d/Remedy:98
 
 https://odysee.com/@greatawakening:c/remedy:31
