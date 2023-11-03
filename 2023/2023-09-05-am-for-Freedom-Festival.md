@@ -7,9 +7,9 @@ The creator and uploader of the video (Nick Cotton, AKA Scum Media or Jack'd) ha
 The videos in question have been used as key evidence in this crime as it indicates a clear pattern of malicious harassment.
 
 The two videos in question are:
-Video 1: https://odysee.com/@UNWAShED:8/Jam-For-Freedom-Must-Be-Stopped:e
-Video 2: https://odysee.com/@UNWAShED:8/jam-for-freedom-nick,-sean,-tommy-export-4:f
-Video 3: https://odysee.com/@TOMMYCOYLEPODCAST:d/jam-for-freedom-nick,-sean,-tommy-export-4:8
+- Video 1: https://odysee.com/@UNWAShED:8/Jam-For-Freedom-Must-Be-Stopped:e
+- Video 2: https://odysee.com/@UNWAShED:8/jam-for-freedom-nick,-sean,-tommy-export-4:f
+- Video 3: https://odysee.com/@TOMMYCOYLEPODCAST:d/jam-for-freedom-nick,-sean,-tommy-export-4:8
 
 Introduction
 
